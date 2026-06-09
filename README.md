@@ -1,4 +1,4 @@
-#  I don't know how to make a read.me
+#  I don't know how to make a read.me photo / picture that can be shown
 ## Never mess with the Real Mafioso and his goons / gangs
 
 <!--
