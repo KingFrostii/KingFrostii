@@ -21,8 +21,6 @@
    
 # I feel no pain, can you say the same?..
 
-
-
 ![Image-alt](<img width="212" height="248" alt="Image" src="https://github.com/user-attachments/assets/de7d9ddd-6b93-42db-8cd1-d416518a816e" />)
 
 <!--
