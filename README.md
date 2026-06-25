@@ -24,7 +24,9 @@
 <p>I only speak English and Filipino -sometimes a little.</p>
 <p>A Nonshippers : ⚠️DO NOT SHIP SPIKE WITH CANONS AND FANONS⚠️.</p>
 <p>I avoid blocking either being toxic and harassing.</p>
-<p>I sit with my friend name Twilight Sparkle, Aka @zouweemama</p>
+<p>I sit with my friend name Twilight Sparkle.</p>
+<p>I usually like shipping Rairty and Spike but in game, I usually don't.</p>
+<p>Twilight is my friend, I always support her and I always got her back.</p>
 
  </div>
  </details>
@@ -93,6 +95,10 @@
    <p>Well if you want to be friends with me, you have to talk / whispering to me alot.</p>
    <p>I avoid talking / whispering under 12 years old.</p>
    <p>I like to talk / whisper alot even when im bored.</p>
+   <p>Do not be a stranger, If you are, i will not able response ur message.</p>
+   <p>Free to interact when im listening to musics.</p>
+   <p>I usually like people cuddeling me either sitting with me. I really don't care if i sit alone.</p>
+   <p>If your not feeling well, not in mood or upset. As a dragon advisor i will simply say "You'll be able to light up the whole sky."</p>
 
 
 
@@ -108,6 +114,8 @@
    <summary><inst>Questions - Why i don't ship Spike with other canons and fanons?</inst></summary>
    <p>Shipping Spike with other canon and fanons may caused a  sex or heat shippers to appeared. Like shipping rarity x spike, etc, and more.</p>
    <p>I rather avoid sex or heat shippers whenever im afk or semi-afk.</p>
+   <p>I not feel uncomfortable sitting with a sex or heat shippers.</p>
+
  </div>
  </details>
 
@@ -145,3 +153,16 @@
   <summary><int>Favourite Shows</int></summary>
   <p>Bluey, FNAF, Lego Movies (part 1 and 2), Kung Fu Panda (all parts), TAWOG, Pokemon shows (series and movies), MLP (series and movies), Turbo, Back to the Outback, Dog in Space, The Angry Birds (all parts), Transformers (all series and movies), Kipo and the age of wonderbeasts, Unicorn Academy (part 1 and 2), The Last Bus, Dead End -Paranormal Park-, Miraculous Ladybug and Cat Noir / Chat Noir (series and movies),NINJAGO (LEGO), The Loud House (serie and movie), Spongebob Squarepants (series and movies), The Boss Baby (all parts), Despicable (all parts), Toy Story (all parts), GOAT, The Cat Returns, Nimona, Swapped, Hotel Transylvania (all parts), My Melody and Kuromi, Bread Barbershop, Storks, Small foot, Spiderman (series and movies), Over the moon, Catch teenieping, Ron's gone wrong, Oddballs, Rango, Ferdinand, Ultraman Rising, Super Pupz, Creeped Out, Chupa, Trolls (all parts), Ponyo, Secret Magic Control Magic, Sonic (all series and movies), Matilda the Musical, Peppa Pig, The Cuphead Show, IF, Wish Dragon, The Twists, Leo, Thelma the Unicorm, Pup Academy, Arlo the Alligator Boy (series and movie), Chicken Run (all parts), Garfield (all series and movies), Boboiboy (all series and movies), Green Eggs and Ham, How to Train Your Dragon (all series and moives), The Creature Cases, Spirit Riding Free, Johnny Test, PJ Masks, Paw Patrol (series and movies), Kpop-Demon Hunters, Woody Woodpecker goes to Camp, Nanny McPhee (all / parts movies), My Neighbor Totoro, The Star, Duck Duck Goose, 7 Bears, Jungle Beat the movie (part 1 and 2).</p>
 
+
+
+
+ </div>
+   </details>
+
+
+
+ <br> 
+
+  <details>
+  <summary><int</int></summary>
+ 
