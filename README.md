@@ -16,12 +16,13 @@
 
 
  <details>
-   <summary><ins>about me</ins></summary>
+   <summary><ins>About Myself</ins></summary>
 
    <p>Hello, my name is Spike and my birthday is on 9 of November.</p>
    <p>Nicknames: Spike, Spine and Spire.</p>
    <p>I only speak English and Filipino -sometimes a little.</p>
-   <p>Nonshippers : ⚠️DO NOT SHIP SPIKE WITH CANONS AND FANONS⚠️.</p>
+   <p>A Nonshippers : ⚠️DO NOT SHIP SPIKE WITH CANONS AND FANONS⚠️.</p>
+   <p>I avoid blocking either being angry or rude.</p>
  </div>
  </details>
 
