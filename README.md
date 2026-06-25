@@ -42,7 +42,7 @@
  <p>Do not try harass or spam with whispers when im afk or semi-afk.</p>
  <p>Don't try make fun of me and my friends.</p>
  <p>I avoid being bullied, spammed, and harassed.</p>
- <p>I will not response even when im sleeping.</p>
+ <p>I will not response to a spam whisper.</p>
 
  </div>
  </details>
