@@ -1,9 +1,15 @@
+
+
+<img width="219" height="294" alt="Image" src="https://github.com/user-attachments/assets/a496b40c-f73c-46fe-9e53-144af4f6a6f3" width="420" />
+
+
+
 <br>
 
    <small><b>"The Dragon King"</b></small>
  
  <p align="center">
-<sub>The underline words are clickabled.</sub>
+ <sub>The underline words are clickabled.</sub>
    </p>
    <br>
 <br> 
