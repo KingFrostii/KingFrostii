@@ -180,7 +180,7 @@
 
 
 
-## Not Able To Read Your Message.
+## Not Able To Read  or Respone Your Message. If You keep spam whisper.
 
 
 <img width="220" height="227" alt="Image" src="https://github.com/user-attachments/assets/ce2041ac-2087-4e3f-a7d8-dca8c74778c7" />
@@ -195,8 +195,10 @@
  <br> 
 
 
+## She always got my side. aka - Twilight and Spike
 
  
+<img width="222" height="325" alt="Image" src="https://github.com/user-attachments/assets/bbb10e4f-0ec7-4950-af85-5903ee7899ab" />
 
 
 
