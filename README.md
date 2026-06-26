@@ -128,7 +128,9 @@
    <p>If your trying to flex me with your peak skins when im active, i really don't care.</p>
    <p>Don't be rude to random people sitting or cuddeling with me.</p>
    <p>Be kind to my friends and random peoples.</p>
-   <p>I'll think of my mind if your cool, awesome, good or bad. </p>
+   <p>I'll think of my mind if your cool, awesome, good or bad.</p>
+   <p>Do not ship TWILIGHT AND SPIKE. I do not like that ship because Twilight and Spike are friends either familys.</p>
+   
 
 
 
