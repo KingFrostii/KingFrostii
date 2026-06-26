@@ -47,7 +47,6 @@
  <p>ALways active, I won't disconnect the game whenever im afk or semi-afk.</p>
 <p>I don't assume that much, I'll allowed u you wear Twilight.</p>
 
-
  </div>
  </details>
 
@@ -103,13 +102,8 @@
    <p>If your not feeling well, not in mood or upset. I might whisper / response you.</p>
    <p>I do not waant to be friends with a Tut skins, toxic ships, etc., and more.</p>
 
-
-
-
 <br> 
 
-
-  
    </div>
    </details>
 
@@ -126,9 +120,6 @@
 
  <br>
 
-
-
-
    <details>
   <summary><inst>Games i usually like</inst></summary>
   <p>I played allot of games i remembered alot of them.</p>
@@ -137,7 +128,6 @@
   <br> 
 
 
-  
    </div>
    </details>
 
