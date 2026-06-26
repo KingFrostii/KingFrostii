@@ -45,6 +45,8 @@
  <p>I avoid being bullied, spammed, and harassed.</p>
  <p>I will not response to a spam whisper.</p>
  <p>ALways active, I won't disconnect the game whenever im afk or semi-afk.</p>
+<p>I don't assume that much, I'll allowed u you wear Twilight.</p>
+
 
  </div>
  </details>
