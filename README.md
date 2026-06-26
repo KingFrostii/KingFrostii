@@ -52,7 +52,7 @@
  <br>
 
   <details>
-         <summary><ins>Do not Befriend with me.</ins></summary>
+         <summary><ins>⚠️Do not Befriend with me.⚠️</ins></summary>
          <p>Under 12 years old, I will not accept either be friends with under 12 years old.</p>
          <p>Above 18+ or 13+ i will accept it.</p>
          <p>I avoid being friend request by under 12 years old.</p>
