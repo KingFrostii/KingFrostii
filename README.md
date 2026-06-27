@@ -225,7 +225,7 @@
 
 ## Not Able To Read  or Respone Your Message. If You keep on spam whisper.
 
-
+<p align="center">
 <img width="220" height="227" alt="Image" src="https://github.com/user-attachments/assets/ce2041ac-2087-4e3f-a7d8-dca8c74778c7" />
 
 
@@ -237,10 +237,12 @@
 
  <br> 
 
+ 
+
 
 ## She always got my side. Thank you, Twilight. 
 
- 
+ <p align="center">
 <img width="222" height="325" alt="Image" src="https://github.com/user-attachments/assets/bbb10e4f-0ec7-4950-af85-5903ee7899ab" />
 
 
@@ -255,7 +257,8 @@
 
 
  ## Sleepy.
-
+ 
+<p align="center">
 <img width="220" height="228" alt="Image" src="https://github.com/user-attachments/assets/635601f9-8858-4be3-8428-b1fb3b36754c" />
 
 
@@ -269,7 +272,6 @@
  
 ## Doing my homework at school.
 
-
-
+<p align="center">
 <img width="216" height="337" alt="Image" src="https://github.com/user-attachments/assets/3586cd79-73d0-4e04-92b6-d8998b915851" />
 
