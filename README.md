@@ -215,14 +215,6 @@
  
 
 
-## ꧁༒sʜᴇ ᴀʟᴡᴀʏs ɢᴏᴛ ᴍʏ sɪᴅᴇ. ᴀɴᴅ ɪ ɢᴏᴛ ʜᴇʀ sɪᴅᴇ ᴛᴏᴏ...༒꧂
-
- <div align="center">
-<img width="222" height="325" alt="Image" src="https://github.com/user-attachments/assets/bbb10e4f-0ec7-4950-af85-5903ee7899ab" />
-
-
-
-
  </div>
    </details>
 
@@ -231,7 +223,7 @@
  <br> 
 
 
- ## ꧁༒sʟᴇᴇᴘʏ...༒꧂
+ ## ꧁༒sʟᴇᴇᴘɪɴɢ...༒꧂
  
 <div align="center">
 <img width="220" height="228" alt="Image" src="https://github.com/user-attachments/assets/635601f9-8858-4be3-8428-b1fb3b36754c" />
@@ -259,6 +251,3 @@
 
 
 
-## ꧁༒ᴛᴀᴋɪɴɢ ᴀ ʙᴀᴛʜ ɪʀʟ...༒꧂
-<p align="center">
-<img width="237" height="137" alt="Image" src="https://github.com/user-attachments/assets/e7d73a5e-8f5b-4788-afd6-628c415d2c9d" />
