@@ -18,16 +18,16 @@
  <details>
  <summary><ins>About Myself</ins></summary>
 <p align="center">
-<p>Hello, my name is Spike, and I'm 23 years old; my birthday is on the 9th of November.</p>
-<p>Nicknames: Spike, Spine and Spire.</p>
-<p>I only speak English and Filipino—sometimes a little.</p>
-<pNonshippers: ⚠️DO NOT SHIP SPIKE WITH CANONS AND FANONS⚠️.</p>
-<p>I avoid blocking either toxicity or harassment.</p>
-<p></p>Was born in the Philippines.</p></p>
-<p>I usually like shipping Rarity and Spike, but in-game, I usually don't.</p>
-<p>Twilight is my friend; I always support her, and I always have her back.</p>
-<p>I will block you if you start harassing my friends.</p>
-<p>I do not like seeing weird, sus, or freaky skins sitting or cuddling with me when I'm AFK or semi-AFK.</p>
+ <p>Hello, my name is Spike, and I'm 23 years old; my birthday is on the 9th of November.</p>
+ <p>Nicknames: Spike, Spine and Spire.</p>
+ <p>I only speak English and Filipino—sometimes a little.</p>
+ <pNonshippers: ⚠️DO NOT SHIP SPIKE WITH CANONS AND FANONS⚠️.</p>
+ <p>I avoid blocking either toxicity or harassment.</p>
+ <p></p>Was born in the Philippines.</p></p>
+ <p>I usually like shipping Rarity and Spike, but in-game, I usually don't.</p>
+ <p>Twilight is my friend; I always support her, and I always have her back.</p>
+ <p>I will block you if you start harassing my friends.</p>
+ <p>I do not like seeing weird, sus, or freaky skins sitting or cuddling with me when I'm AFK or semi-AFK.</p>
 
  </div>
  </details>
@@ -37,7 +37,7 @@
 
   <details>
    <summary><ins>About Pony Town</ins></summary>
-<p align="center"
+<p align="center">
  <p>I allow cuddles and piles when I'm with people. Also, do not cover or copy my Spike cosplay; I will not allow that.</p>
  <p>I may be AFK or semi-AFK, but I may be online every year, well, sometimes.</p>
  <p>Free to W2I, there's a chance that I might see the messages.</p>
@@ -48,7 +48,7 @@
  <p>I avoid being bullied, spammed, and harassed.</p>
  <p>I will not respond to a spam whisper.</p>
  <p>Always active, I won't disconnect the game whenever I'm AFK or semi-AFK.</p>
-<p>I don't assume that much; I'll allow you to wear Twilight if you want my attention.</p>
+ <p>I don't assume that much; I'll allow you to wear Twilight if you want my attention.</p>
 
  </div>
  </details>
@@ -58,15 +58,15 @@
   <details>
  <summary><ins>⚠️Do not Befriend with me.⚠️</ins></summary>
 <p align="center">     
-<p>Under 12 years old, I will not accept being friends with anyone under 12 years old.</p>
-<p>Above 18+ or 13+, I will accept it.</p>
-<p>I avoid being friend-requested by people under 12 years old.</p>
-<p>Copying me or my friends is a dangerous decision and awful action. I will block you for copying me or my friends.</p>
-<p>Tired and sleepy. (Needs some rest.)</p>
-<p>I do not like getting disturbed in my rest by spam whispering. Whispering to me when I'm sleeping is fine.</p>
-<p>If you're willing to be my friend, you have to chat calmly.</p>
-<p>I do not like nonpatiences if they're willing to me to accept their friend requests.</p>
-<p>Whisper to me if you want to talk or be friends with me. I'll even ask if you're 18+ or under 12 years old.</p>
+ <p>Under 12 years old, I will not accept being friends with anyone under 12 years old.</p>
+ <p>Above 18+ or 13+, I will accept it.</p>
+ <p>I avoid being friend-requested by people under 12 years old.</p>
+ <p>Copying me or my friends is a dangerous decision and awful action. I will block you for copying me or my friends.</p>
+ <p>Tired and sleepy. (Needs some rest.)</p>
+ <p>I do not like getting disturbed in my rest by spam whispering. Whispering to me when I'm sleeping is fine.</p>
+ <p>If you're willing to be my friend, you have to chat calmly.</p>
+ <p>I do not like nonpatiences if they're willing to me to accept their friend requests.</p>
+ <p>Whisper to me if you want to talk or be friends with me. I'll even ask if you're 18+ or under 12 years old.</p>
   
 
 
@@ -256,7 +256,7 @@
  <br> 
 
 
-<p align="center">  ## Sleepy.
+ ## Sleepy
  
 <p align="center">
 <img width="220" height="228" alt="Image" src="https://github.com/user-attachments/assets/635601f9-8858-4be3-8428-b1fb3b36754c" />
