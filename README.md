@@ -4,9 +4,6 @@
 
 <p align="center">
 
-
-<p align="center">
-
    <p align="center">
    <small><b>"The Dragon King"</b></small>
 
