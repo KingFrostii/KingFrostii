@@ -163,7 +163,6 @@
 
    <details>
    <summary><int>Animals I like</int></summary>
-      
 <div align="center">
    <p>Dinosaurs: T-Rex, Velociraptor, Indominus Rex, Distortus Rex, and Pterodactyl. Dogs: German Shepherd, Doberman, and Husky. Animals: Crocodiles, Alligators, Snakes, and Spiders.</p>
       </div>
