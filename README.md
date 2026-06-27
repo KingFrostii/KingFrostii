@@ -14,8 +14,8 @@
  </p>
  <br>
 
- 
-<p align="center">
+ <br>
+
 <details>
  <summary><ins>About Myself</ins></summary>
    <p align="center">
@@ -34,6 +34,7 @@
 </details>
  <br>
   
+<br>
 
   <details>
    <summary><ins>About Pony Town</ins></summary>
