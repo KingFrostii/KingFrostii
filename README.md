@@ -62,7 +62,7 @@
  <summary><ins>❗ᴅᴏ ɴᴏᴛ ʙᴇғʀɪᴇɴᴅ❗</ins></summary>
      
 <div align="center">   
- <p>Under 12 years old, I will not accept being friends with anyone under 12 years old.</p>
+ <p>Under 10 years old, I will not accept being friends with anyone under 12 years old.</p>
  <p>Above 18+ or 13+, I will accept it.</p>
  <p>I avoid being friend-requested by people under 12 years old.</p>
  <p>Copying me or my friends is a dangerous decision and awful action. I will block you for copying me or my friends.</p>
@@ -80,7 +80,7 @@
   
 <div align="center">
    <p>Well, if you want to be friends with me, you have to talk to me or whisper a lot.</p>
-   <p>I avoid talking / whispering if under 12 years old.</p>
+   <p>I avoid talking / whispering if under 10 years old.</p>
    <p>I like to talk / whisper a lot even when I'm bored.</p>
    <p>Stay in touch; otherwise, I cannot respond to your message.</p>
    <p>Free to interact by whisper when I'm listening to music and drawing.</p>
