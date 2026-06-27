@@ -31,6 +31,7 @@
  <p>Twilight is my friend; I always support her, and I always have her back.</p>
  <p>I will block you if you start harassing my friends.</p>
  <p>I do not like seeing weird, sus, or freaky skins sitting or cuddling with me when I'm AFK or semi-AFK.</p>
+ 
  </div>
 </details>
 <br>
