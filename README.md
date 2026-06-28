@@ -19,6 +19,7 @@
  </p>
  <br>
 
+## About Me!
 <details>
    <summary><ins>|ᴍʏsᴇʟғ|:</ins></summary>
   
@@ -44,6 +45,7 @@
 
 </p>
 
+## |The game i only play|
 <details>
   <summary><ins>|ᴘᴏɴʏ ᴛᴏᴡɴ|:</ins></summary>
    
@@ -62,6 +64,7 @@
  </div>
 </details>
 <br>
+
 
   <details>
  <summary><ins>|❗ᴅᴏ ɴᴏᴛ ʙᴇғʀɪᴇɴᴅᴇᴅ ᴍᴇ.❗|:</ins></summary>
