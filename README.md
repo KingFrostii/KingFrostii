@@ -45,7 +45,7 @@
 </p>
 
 <details>
-  <summary><ins>ᴘᴏɴʏ ᴛᴏᴡɴ:</ins></summary>
+  <summary><ins>|ᴘᴏɴʏ ᴛᴏᴡɴ|:</ins></summary>
    
 <div align="center">
  <p>When I'm with people, I'll let them snuggle and pile on me. My Spike cosplay should not be covered or replicated. Doing that would be risky.</p>
@@ -64,7 +64,7 @@
 <br>
 
   <details>
- <summary><ins>❗ᴅᴏ ɴᴏᴛ ʙᴇғʀɪᴇɴᴅᴇᴅ ᴍᴇ.❗:</ins></summary>
+ <summary><ins>|❗ᴅᴏ ɴᴏᴛ ʙᴇғʀɪᴇɴᴅᴇᴅ ᴍᴇ.❗|:</ins></summary>
      
 <div align="center">   
  <p>Under 10 years old, I will not accept being friends with anyone under 12 years old.</p>
@@ -81,7 +81,7 @@
 <br>
 
 <details>
-<summary><ins>ʜᴏᴡ ᴛᴏ ʙᴇ ғʀɪᴇɴᴅs ᴡɪᴛʜ ᴍᴇ❔:</ins></summary>
+<summary><ins>|ʜᴏᴡ ᴛᴏ ʙᴇ ғʀɪᴇɴᴅs ᴡɪᴛʜ ᴍᴇ❔|:</ins></summary>
   
 <div align="center">
    <p>Well, if you want to be friends with me, you have to talk to me or whisper a lot.</p>
@@ -97,7 +97,7 @@
 <br>
 
   <details>
-   <summary><ins>⚠️ᴡᴀʀɴɪɴɢ...⚠️:</ins></summary>
+   <summary><ins>|⚠️ᴡᴀʀɴɪɴɢ...⚠️|:</ins></summary>
      
 <div align="center">
    <p>Interacting / Disturbing / Interrupting me is an extreme caution; I might bite you if YOU do that.</p>
@@ -117,7 +117,7 @@
 <br>
 
 <details>
- <summary><ins>❔ʟᴏᴄᴀᴛɪᴏɴ❔:</ins></summary>
+ <summary><ins>|❔ʟᴏᴄᴀᴛɪᴏɴ❔|:</ins></summary>
  
  <div align="center">
    <p>under bakery, by the brick fences, at approximately the bakery board, [In Safe Server #OG 1, #2  and # 18+ server ]</p>
@@ -126,7 +126,7 @@
 <br>
 
 <details>
-   <summary><ins>ǫᴜᴇsᴛɪᴏɴ - ᴡʜʏ ɪ ᴅᴏɴ'ᴛ sʜɪᴘ sᴘɪᴋᴇ ᴡɪᴛʜ ᴏᴛʜᴇʀ ᴄᴀɴᴏɴs ᴀɴᴅ ғᴀɴᴏɴs❔:</ins></summary>
+   <summary><ins>|ǫᴜᴇsᴛɪᴏɴ| - |ᴡʜʏ ɪ ᴅᴏɴ'ᴛ sʜɪᴘ sᴘɪᴋᴇ ᴡɪᴛʜ ᴏᴛʜᴇʀ ᴄᴀɴᴏɴs ᴀɴᴅ ғᴀɴᴏɴs❔|:</ins></summary>
      
  <div align="center">
    <p>Shipping Spike with other canons and fanons may cause sex or heat shippers to appear. Like shipping rarity x spike, etc., and more.</p>
