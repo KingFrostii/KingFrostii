@@ -1,6 +1,6 @@
 ## If your reading this, your all welcome to read my read.me! ^^
 Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, and Frostern. I'm a he/him/they/them/it/its dragon [I AM NOT A SHE/HER]. And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. I'll allow a random person if they're talkative, kind, respectful, and responsible! If they're willing to add me. AFK: playing, watching, eating, doing homework, and sleeping; semi-AFK: listening to music, drawing, and reading comics. Feel free to whisper to me when I'm AFK or semi-AFK. I allow interaction too! If you followed me, I might follow you back^^.
 
-$${\color{#5addf8}WHY ME VRO?}$$
+$${\color{#5addf8}WHY    ME   VRO?}$$
  
 
