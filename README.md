@@ -10,6 +10,7 @@ Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, 
 [⚠].𝗪𝗔𝗥𝗡𝗜𝗡𝗚..[⚠]
 <p align="center"> 
 I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.
+ 
 I WILL NOT LET YOU SHIP MY OC WITH YOUR FANONS IN YOUR OWN STYLE.
 
  $${\color{#5addf8}█▀ ██▀▀ █▀▀ █▀█ █▀
