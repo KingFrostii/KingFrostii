@@ -9,4 +9,4 @@ Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, 
 I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.
 I WILL NOT LET YOU SHIP MY OC WITH YOUR FANONS IN YOUR OWN STYLE.
 
- $${\color{#5addf8}𝗪𝗛𝗬 𝗠𝗘 𝗩𝗥𝗢?}$$
+ $${\color{#5addf8}𝗪𝗛𝗬.𝗠𝗘.𝗩𝗥𝗢?}$$
