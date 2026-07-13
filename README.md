@@ -1,4 +1,3 @@
-![](https://komarev.com/ghpvc/?username=KingFrostii&label=Ice❆)
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
                     
  
