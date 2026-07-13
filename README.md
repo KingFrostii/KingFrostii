@@ -20,11 +20,14 @@ I WILL NOT LET YOU SHIP MY OC WITH YOUR FANONS IN YOUR OWN STYLE.
 
 AVOID FALLING IN LOVE WITH ME BECAUSE IF YOU DO, I MAY BLOCK YOU. -[I DON'T 𝐁𝚰𝐓𝐄.]
 
-AVOID SPAM WHISPERS.
+AVOID 𝐒𝐏𝐀𝐌 𝐖𝐇𝚰𝐒𝐏𝐄𝐑𝐒.
 
 NOT A 𝐏𝐑𝐎𝐔𝐃 𝐒𝐄𝐋𝐅𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐏𝐑𝐎𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐃𝐀𝐑𝐊𝐒𝐇𝚰𝐏𝐏𝐄𝐑.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+
+I will allow you to draw me in your 𝐎𝐖𝐍 styles. -[𝗶𝗳 𝗽𝗲𝗿𝗺𝗶𝘀]
+
 
 
 
