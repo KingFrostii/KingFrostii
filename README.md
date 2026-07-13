@@ -36,6 +36,7 @@ Don't cover or copy my 𝐎𝐂. - Only with friends if they want to cover me.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
+[![spotify-github-profile](https://open.spotify.com/track/1NCZMAnGrzUmpBzkBlJjNw?autoplay_ok=1)](
 
  
   
