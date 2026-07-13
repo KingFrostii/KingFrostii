@@ -17,3 +17,10 @@ I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.
 I WILL NOT LET YOU SHIP MY OC WITH YOUR FANONS IN YOUR OWN STYLE.
 
   $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+
+  ## FROSTII'S INTERESTS
+  
+  $${\color{#e3faff}}Relaxing Songs or Musics:}$$  
+  [![spotify-github-profile](https://open.spotify.com/search/It's%20alright)
+  
+  
