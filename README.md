@@ -1,6 +1,6 @@
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
                     
- 
+ ATA.BOOK
 
  <div align="center">
    
@@ -18,14 +18,5 @@ I WILL NOT LET YOU SHIP MY OC WITH YOUR FANONS IN YOUR OWN STYLE.
 
   $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
-
-
-
-
-
-
-
- 
-  [![spotify-github-profile](https://open.spotify.com/search/It's%20alright)
   
   
