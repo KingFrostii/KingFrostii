@@ -36,7 +36,7 @@ Don't cover or copy my 𝐎𝐂. - Only with friends if they want to cover me.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
-## Relaxing Song or Music:
+## Relaxing 𝗦𝗼𝗻𝗴𝘀  or 𝗠𝘂𝘀𝗶𝗰:
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yawih42d7q5duwlif6yo2sfy4m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
