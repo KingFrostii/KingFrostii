@@ -8,7 +8,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
    
 ## If your reading this, your all welcome to read my read.me! ^^
  <p align="center"> 
-Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, King, and Frostern. I'm a he/him/they/them/it/its dragon [I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥]. And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. I'll allow a random person if they're talkative, kind, respectful, and responsible! If they're willing to add me. AFK: playing, watching, eating, doing homework, and sleeping; semi-AFK: listening to music, drawing, and reading comics. Feel free to whisper to me when I'm AFK or semi-AFK. I allow interaction too! If you followed me, I might follow you back^^.
+Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, King, and Frostern. I'm a he/him/they/them/it/its dragon [I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥]. And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. I'll allow a random person if they're talkative, kind, respectful, and responsible! If they're willing to add me. AFK: playing, watching, eating, doing homework, and sleeping; semi-AFK: listening to music, drawing, and reading comics. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too! If you followed me on GitHub, I might follow you back^^.
 <p align="center"> 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$  
   
@@ -23,7 +23,11 @@ AVOID FALLING IN LOVE WITH ME BECAUSE IF YOU DO, I MAY BLOCK YOU. -[I DON'T 𝐁
 AVOID SPAM WHISPERS.
 
 NOT A 𝐏𝐑𝐎𝐔𝐃 𝐒𝐄𝐋𝐅𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐏𝐑𝐎𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐃𝐀𝐑𝐊𝐒𝐇𝚰𝐏𝐏𝐄𝐑.
+
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+
+
+
 
  
   
