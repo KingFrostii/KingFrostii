@@ -1,7 +1,7 @@
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
  <div align="center">                    
-[ATA.BOOK](https://kingfrostii.atabook.org/)
+[ATA.BOOK](https://kingfrostii.atabook.org/))
 
  <div align="center">
    
