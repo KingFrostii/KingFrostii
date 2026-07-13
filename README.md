@@ -1,4 +1,5 @@
-# $\color{148bdc}{\textbf{KING FROSTII}}$#
+<div align="center"> 
+ $\color{148bdc}{\textbf{KING FROSTII}}$#
  
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
