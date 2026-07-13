@@ -36,7 +36,5 @@ Don't cover or copy my 𝐎𝐂. - Only with friends if they want to cover me.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zrunji4egigzf2nhpcn7eouunq&cover_image=true&theme=default&show_offline=false&background_color=ceecf3&interchange=false&profanity=false&hide_remaster=false&bar_color=a0bde4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
- 
   
