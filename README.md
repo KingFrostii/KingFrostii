@@ -20,7 +20,8 @@ I WILL NOT LET YOU SHIP MY OC WITH YOUR FANONS IN YOUR OWN STYLE.
 
   ## FROSTII'S INTERESTS
   
-  $${\color{#e3faff}}Relaxing Songs or Musics:}$$  
+  $${\color{#e3faff}}Relaxing Songs or Musics:}$$
+  
   [![spotify-github-profile](https://open.spotify.com/search/It's%20alright)
   
   
