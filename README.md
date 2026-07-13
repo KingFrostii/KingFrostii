@@ -16,7 +16,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 <p align="center"> 
 I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.
  
-I WILL NOT LET YOU SHIP MY OC WITH YOUR FANONS IN YOUR OWN STYLE.
+I WILL NOT LET YOU SHIP MY 𝐎𝐂 WITH YOUR FANONS IN YOUR OWN STYLE.
 
 AVOID FALLING IN LOVE WITH ME BECAUSE IF YOU DO, I MAY BLOCK YOU. -[I DON'T 𝐁𝚰𝐓𝐄.]
 
@@ -28,8 +28,13 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 I will allow you to draw me in your 𝐎𝐖𝐍 styles. -𝗶𝗳 𝗽𝗲𝗿𝗺𝗶𝘀
 
+Always or not always active. -not always active during exams..
 
+Hugs and cuddles are welcome whenever I'm AFK ^^.
 
+Don't cover or copy my 𝐎𝐂. - Only with friends if they want to cover me.
+
+$${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
 
  
