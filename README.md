@@ -1,4 +1,6 @@
- $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+  $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+                    
+ 
 
  <div align="center">
    
@@ -12,5 +14,4 @@ I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.
  
 I WILL NOT LET YOU SHIP MY OC WITH YOUR FANONS IN YOUR OWN STYLE.
 
- $${\color{#5addf8}█▀ ██▀▀ █▀▀ █▀█ █▀
-▄█ █▄▄ ██▄ ██▄ █▀▀ ▄█}$$
+  $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
