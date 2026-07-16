@@ -1,3 +1,5 @@
+$$\color{#e3faff}{\textbf{❆𝗦𝗣𝗔𝗠 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥❆}}$$
+
 <div align="center"> 
  
 # $$\color{#148bdc}{\textbf{❆KING FROSTII❆}}$$
@@ -14,7 +16,7 @@
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$   
 ## If your reading this, your all welcome to read my read.me! ^^
  <p align="center"> 
-Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, King, and Frostern. I'm a he/him/they/them/it/its dragon [I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥]. And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. I'll allow a random person if they're talkative, kind, respectful, and responsible! If they're willing to add me. AFK: playing, watching, eating, doing homework, and sleeping; semi-AFK: listening to music, drawing, and reading comics. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too! If you followed me on GitHub, I might follow you back^^.
+Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, King, and Frostern. I'm a he/him/they/them/it/its dragon [I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥]. And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. I'll allow a random person if they're talkative, kind, respectful, and responsible! If they're willing to add me. AFK: playing, watching, eating, doing homework, and sleeping; semi-AFK: listening to music, drawing, and reading comics. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too! 
 <p align="center"> 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$  
 
