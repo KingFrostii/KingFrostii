@@ -16,6 +16,11 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, King, and Frostern. I'm a he/him/they/them/it/its dragon [I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥]. And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. I'll allow a random person if they're talkative, kind, respectful, and responsible! If they're willing to add me. AFK: playing, watching, eating, doing homework, and sleeping; semi-AFK: listening to music, drawing, and reading comics. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too! If you followed me on GitHub, I might follow you back^^.
 <p align="center"> 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$  
+
+## 
+I might not be able to recall who you are or were because I have short-term memory loss.
+
+
   
 [⚠]..𝗪𝗔𝗥𝗡𝗜𝗡𝗚..[⚠]
 <p align="center"> 
@@ -42,4 +47,12 @@ Hugs and cuddles are welcome whenever I'm AFK ^^.
 Don't cover or copy my 𝐎𝐂. - Only with friends if they want to cover me.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+# $$\color{#148bdc}{\textbf{𝗛𝗮𝘁𝗲𝘀 𝗮𝗻𝗱 𝘀𝘂𝗳𝗳𝗲𝗿𝘀｡}}$$
+ 
+I have a short term memory lost, i may not able to remember who u are or were.
+
+If someone tries to whisper to me, I detest being called gay, weirdo, stupid, idiot, etc, and more.
+
+
+
 
