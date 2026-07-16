@@ -47,6 +47,7 @@ Hugs and cuddles are welcome whenever I'm AFK ^^.
 Don't cover or copy my 𝐎𝐂. - Only with friends if they want to cover me.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+
 # $$\color{#148bdc}{\textbf{𝗛𝗮𝘁𝗲𝘀 𝗮𝗻𝗱 𝘀𝘂𝗳𝗳𝗲𝗿𝘀｡}}$$
  
 I have a short term memory lost, i may not able to remember who u are or were.
