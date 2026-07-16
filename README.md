@@ -7,7 +7,7 @@
  <div align="center">  
   
 # [ATA.BOOK](https://kingfrostii.atabook.org/)
-  -Don't spam messages.
+  -𝗗𝗼𝗻'𝘁 𝘀𝗽𝗮𝗺 𝗺𝗲𝘀𝘀𝗮𝗴𝗲𝘀.
 
  <div align="center">
   
