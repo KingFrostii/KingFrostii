@@ -62,7 +62,7 @@ Someone is referring to me by calling me "MAMA."
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
 
-#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲^^｡}}$$
+#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲｡}}$$
 
 I'll allow a random person if they're talkative, kind, respectful, and responsible! If they're willing to add me.
 
