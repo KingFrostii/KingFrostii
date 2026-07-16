@@ -54,6 +54,6 @@ I have a short term memory lost, i may not able to remember who u are or were.
 
 If someone tries to whisper to me, I detest being called gay, weirdo, stupid, idiot, etc, and more.
 
-
+$${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
 
