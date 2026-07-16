@@ -8,6 +8,8 @@
   
 [ATA.BOOK](https://kingfrostii.atabook.org/)
 
+-Don't spam messages.
+
  <div align="center">
   
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$   
