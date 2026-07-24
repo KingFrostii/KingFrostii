@@ -1,5 +1,7 @@
 # Before reading my read.me. Read this first!
 
+<div align="center">
+ 
 # 📊 GitHub Stats:
 ![](https://github-readme-stats.shion.dev/api?username=KingFrostii&theme=dark&hide_border=true&include_all_commits=true&count_private=false)<br/>
 ![](https://streak-stats.demolab.com/?user=KingFrostii&theme=dark&hide_border=true)<br/>
