@@ -111,14 +111,6 @@ Want to learn code<br>
 ![](https://streak-stats.demolab.com/?user=KingFrostii&theme=dark&hide_border=true)<br/>
 ![](https://github-readme-stats.shion.dev/api/top-langs/?username=KingFrostii&theme=dark&hide_border=true&include_all_commits=true&count_private=false&layout=compact)
 
-## 🏆 GitHub Trophies
-![](https://github-profile-trophy.vercel.app/?username=KingFrostii&theme=radical&no-frame=true&no-bg=false&margin-w=4)
-
-
-### 🔝 Top Contributed Repo
-![](https://github-contributor-stats.vercel.app/api?username=KingFrostii&limit=5&theme=dark&combine_all_yearly_contributions=true)
-
-
   ## 💰 You can help me by Donating!
   [![Patreon](https://img.shields.io/badge/Patreon-F96854?style=for-the-badge&logo=patreon&logoColor=white)](https://patreon.com/𝑲𝒊𝒏𝒈𝑭𝒓𝒐𝒔𝒕𝒊𝒊) 
 
