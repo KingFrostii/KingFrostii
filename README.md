@@ -1,3 +1,4 @@
+<div align="center"> 
 <img src="https://komarev.com/ghpvc/?username=KingFrostiie&color=5addf8&style=plastic&label=❆" />
 
 $$\color{#e3faff}{\textbf{❆𝗦𝗣𝗔𝗠 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥❆}}$$
