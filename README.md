@@ -64,7 +64,7 @@ I'm not a shark, but that doesn't mean I appear to be...
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
 
-#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲｡}}$$
+#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲.}}$$
 
 I'll allow a random person if they're talkative, kind, respectful, and responsible! By whispering to me. If they're willing to add me.
 
@@ -74,22 +74,15 @@ Allowing interactions by whispering.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
-# 💫 About Me:
-Coding<br>Sketching<br>
+##  $$\color{#148bdc}{\textbf{𝗠𝘆 𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀.}}$$
+
+Loves to 𝗦𝗸𝗲𝘁𝗰𝗵𝗶𝗻𝗴 𝗼𝗿 𝗗𝗿𝗮𝘄𝗶𝗻𝗴 
+
+Loves to 𝗪𝗮𝘁𝗰𝗵𝗶𝗻𝗴 𝗺𝗼𝘃𝗶𝗲𝘀 𝗼𝗿 𝘀𝗲𝗿𝗶𝗲𝘀 
+
+Loves to 𝗦𝗹𝗲𝗲𝗽
+
+Loves to 𝗜𝗻𝘁𝗲𝗿𝗮𝗰𝘁 
 
 
-## 🌐 Socials:
-[![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/KingFrostii) 
 
-# 💻 Tech Stack:
- ![Sketch](https://img.shields.io/badge/Sketch-FFB387?style=for-the-badge&logo=sketch&logoColor=black) ![Sketch Up](https://img.shields.io/badge/SketchUp-005F9E?style=for-the-badge&logo=sketchup&logoColor=white) ![Snowflake](https://img.shields.io/badge/snowflake-%2329B5E8.svg?style=for-the-badge&logo=snowflake&logoColor=white)  ![GitHub](https://img.shields.io/badge/github-%23121011.svg?style=for-the-badge&logo=github&logoColor=white)
-# 📊 GitHub Stats:
-![](https://github-readme-stats.shion.dev/api?username=KingFrostii&theme=dark&hide_border=false&include_all_commits=false&count_private=false)<br/>
-![](https://streak-stats.demolab.com/?user=KingFrostii&theme=dark&hide_border=false)<br/>
-
-  ## 💰 You can help me by Donating
-  [![Patreon](https://img.shields.io/badge/Patreon-F96854?style=for-the-badge&logo=patreon&logoColor=white)](https://patreon.com/𝑲𝒊𝒏𝒈𝑭𝒓𝒐𝒔𝒕𝒊𝒊) 
-
-   $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
- 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
