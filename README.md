@@ -1,3 +1,4 @@
+
 <div align="center"> 
  
 [![](https://komarev.com/ghpvc/?username=KingFrostii&icon=5addf8=0)](https://visitcount.itsvg.in)
@@ -101,8 +102,5 @@ Loves to 𝗣𝗹𝗮𝘆
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
-  ## 💰 You can help me by Donating!
-  [![Patreon](https://img.shields.io/badge/Patreon-F96854?style=for-the-badge&logo=patreon&logoColor=white)](https://patreon.com/𝑲𝒊𝒏𝒈𝑭𝒓𝒐𝒔𝒕𝒊𝒊) 
-
   $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+
