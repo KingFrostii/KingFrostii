@@ -1,3 +1,4 @@
+<div align="center">
 # Before reading my read.me. Read this first!
 
 <div align="center">
