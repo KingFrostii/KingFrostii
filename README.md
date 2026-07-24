@@ -1,4 +1,5 @@
  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=28&duration=2000&pause=500&color=5addf8&center=true&width=500&lines=%F0%9F%94%A5+Hi%2C+Hello+welcome to my read.me!;Developer+Program+Member;Wants+to+learn+codes!" alt="Typing Animation"/>
+
  
 [![](https://komarev.com/ghpvc/?username=KingFrostii&icon=5addf8=0)](https://visitcount.itsvg.in)
 
