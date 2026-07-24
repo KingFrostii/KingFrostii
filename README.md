@@ -51,7 +51,7 @@ Not a toxic or rude person.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
-# $$\color{#148bdc}{\textbf{𝗛𝗮𝘁𝗲𝘀 𝗮𝗻𝗱 𝘀𝘂𝗳𝗳𝗲𝗿𝘀｡}}$$
+# $$\color{#148bdc}{\textbf{𝗛𝗮𝘁𝗲𝘀 𝗮𝗻𝗱 𝘀𝘂𝗳𝗳𝗲𝗿𝘀.}}$$
  
 I have a short term memory lost, i may not able to remember who u are or were.
 
@@ -84,5 +84,8 @@ Loves to 𝗦𝗹𝗲𝗲𝗽
 
 Loves to 𝗜𝗻𝘁𝗲𝗿𝗮𝗰𝘁 
 
+Loves to 𝗣𝗹𝗮𝘆
+
+$${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
 
