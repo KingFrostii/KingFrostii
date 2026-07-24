@@ -1,4 +1,10 @@
-<div align="center"> 
+<img src="https://img.shields.io/github/followers/YALDAKHOSHPEY?style=for-the-badge&color=6D28D9&logo=github&logoColor=white"/>
+
+<img src="https://img.shields.io/github/stars/YALDAKHOSHPEY?style=for-the-badge&color=6D28D9&logo=github&logoColor=white"/>
+
+<a href="https://docs.github.com/en/developers/overview/github-developer-program"><div align="center"> 
+
+<div align="center">
 <img src="https://komarev.com/ghpvc/?username=KingFrostiie&color=5addf8&style=plastic&label=❆" />
 
 $$\color{#e3faff}{\textbf{❆𝗦𝗣𝗔𝗠 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥❆}}$$
