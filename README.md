@@ -1,6 +1,6 @@
-<img src="https://img.shields.io/github/followers/YALDAKHOSHPEY?style=for-the-badge&color=6D28D9&logo=github&logoColor=white"/>
+<img src="https://img.shields.io/github/followers/KingFrostii=for-the-badge&color=6D28D9&logo=github&logoColor=white"/>
 
-<img src="https://img.shields.io/github/stars/YALDAKHOSHPEY?style=for-the-badge&color=6D28D9&logo=github&logoColor=white"/>
+<img src="https://img.shields.io/github/stars/KingFrostii?style=for-the-badge&color=6D28D9&logo=github&logoColor=white"/>
 
 <a href="https://docs.github.com/en/developers/overview/github-developer-program"><div align="center"> 
 
