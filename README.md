@@ -8,7 +8,7 @@
 
 <img width="176" height="244" alt="Image" src="https://github.com/user-attachments/assets/99f7407c-5275-4d1b-8ee3-65e7833a72a6" />
 
-$$\color{#6a34bb}{\textbf{⭐KingSolar⭐}$$
+$$\color{#6a34bb}{\textbf{⭐KingSolar⭐}}$$
 
 <div align="center"> 
  
@@ -16,7 +16,7 @@ $$\color{#6a34bb}{\textbf{⭐KingSolar⭐}$$
 
 <div align="center"> 
  
-$$\color{#36bcee}{\textbf{💦KingSea💦}$$
+$$\color{#36bcee}{\textbf{💦KingSea💦}}$$
 
   <div align="center"> 
    
