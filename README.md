@@ -3,7 +3,9 @@
  $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
  # 𝕋𝕙𝕖 𝔼𝕝𝕖𝕞𝕖𝕟𝕥𝕤 𝕠𝕗 𝕥𝕙𝕖 𝔻𝕣𝕒𝕘𝕠𝕟𝕤!
- 
+
+<img width="172" height="248" alt="Image" src="https://github.com/user-attachments/assets/ab63e2fd-b578-4589-bf29-b888d6318046" />
+ $$\color{#ea9c26}{\textbf{🔥KingBlaze🔥}}$$
 <img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/05008032-9f6a-4d47-b694-5488b71f8109" />
 
 <div align="center"> 
