@@ -23,7 +23,6 @@ $$\color{#e3faff}{\textbf{𝚰 𝐎𝐍𝐋𝐘 𝐅𝐎𝐋𝐋𝐎𝐖 𝐏�
    
  <div align="center">
   
-$${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$   
 
 # $$\color{#5addf8}{\textbf{If your reading this, your all welcome to read my read.me!}}$$
 
