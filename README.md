@@ -68,6 +68,8 @@ Not a toxic or rude person.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
+ <p align="center"> 
+  
 # $$\color{#148bdc}{\textbf{𝗛𝗮𝘁𝗲𝘀 𝗮𝗻𝗱 𝘀𝘂𝗳𝗳𝗲𝗿𝘀.}}$$  <img width="172" height="248" alt="Image" src="https://github.com/user-attachments/assets/ab63e2fd-b578-4589-bf29-b888d6318046" />
 
 I have a short term memory lost, i may not able to remember who u are or were.
@@ -80,7 +82,8 @@ I'm not a shark, but that doesn't mean I appear to be...
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
-
+ <p align="center"> 
+  
 #  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲!}}$$ <img width="164" height="224" alt="Image" src="https://github.com/user-attachments/assets/31c21a9a-6728-4a08-8788-ec629d17fb47" />
 
 I'll allow a random person if they're talkative, kind, respectful, and responsible! By whispering to me. If they're willing to add me.
@@ -90,7 +93,8 @@ Might be thinking I'm toxic or rude, but I'm not.
 Allowing interactions by whispering.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
- 
+  <p align="center"> 
+   
 ##  $$\color{#148bdc}{\textbf{𝗠𝘆 𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀.}}$$ <img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/501014f5-02e4-4619-b253-6f337ab3fdea" /> <img width="176" height="244" alt="Image" src="https://github.com/user-attachments/assets/99f7407c-5275-4d1b-8ee3-65e7833a72a6" />
 
 Loves to 𝗦𝗸𝗲𝘁𝗰𝗵𝗶𝗻𝗴 𝗼𝗿 𝗗𝗿𝗮𝘄𝗶𝗻𝗴 
