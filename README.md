@@ -127,7 +127,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 ##  $$\color{#148bdc}{\textbf{𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗔𝗻𝗶𝗺𝗮𝗹𝘀!}}$$ 
 
-$\color{#5addf8}\textsf{Red Pandas, Dogs, Cats, Mice/Mouse, Tigers, Lions, Cheetahs, Horses, Bears, Pandas, Dinosaurs, Dragons, Sharks, Megalodons, Polar Bears, Deers, Lynxs, Lambs, Sheeps, Hyenas, Wolfs, Otters, Penguins, Eagles, Owls, Beavers, Bunnies, Rabbits, Gecko's, Lizards, Roosters, Moutain Lions, Foxs, Kangaroos, Axolotles, Seahorses, Jackals, Marten, and Snakes!}$
+Red Pandas, Dogs, Cats, Mice/Mouse, Tigers, Lions, Cheetahs, Horses, Bears, Pandas, Dinosaurs, Dragons, Sharks, Megalodons, Polar Bears, Deers, Lynxs, Lambs, Sheeps, Hyenas, Wolfs, Otters, Penguins, Eagles, Owls, Beavers, Bunnies, Rabbits, Gecko's, Lizards, Roosters, Moutain Lions, Foxs, Kangaroos, Axolotles, Seahorses, Jackals, Marten, and Snakes!
 
 <p align="center"> 
  
