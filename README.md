@@ -36,7 +36,8 @@ Hello, my name is KingFrostii! My nicknames are $\color{#5addf8}\textsf{Frost, F
  
  $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
-[⚠]..𝗪𝗔𝗥𝗡𝗜𝗡𝗚..[⚠]
+$\color{#red}\textsf{[⚠]..𝗪𝗔𝗥𝗡𝗜𝗡𝗚..[⚠]}$
+
 <p align="center"> 
 I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.
  
