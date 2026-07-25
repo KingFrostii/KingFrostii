@@ -65,12 +65,14 @@ Not a toxic or rude person.
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
  <p align="center"> 
-  
+
 # $$\color{#148bdc}{\textbf{𝗛𝗮𝘁𝗲𝘀 𝗮𝗻𝗱 𝘀𝘂𝗳𝗳𝗲𝗿𝘀.}}$$ 
+
+$${\color{#ea9c26}｡｡｡｡｡｡}$$
 
 <img width="172" height="248" alt="Image" src="https://github.com/user-attachments/assets/ab63e2fd-b578-4589-bf29-b888d6318046" />
 
-$${\color{#ea9c26}｡｡｡｡｡｡}$$
+
 
 I have a short term memory lost, i may not able to remember who u are or were.
 
