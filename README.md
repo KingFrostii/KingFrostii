@@ -21,7 +21,7 @@ $$\color{#e3faff}{\textbf{𝚰 𝐎𝐍𝐋𝐘 𝐅𝐎𝐋𝐋𝐎𝐖 𝐏�
  <div align="center">  
   
 ### 🌐 Socials:
-[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/RaptorBlue4k) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/kingfrostii) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/KingFrostii) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@kingfrostiithedragon) 
+[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/RaptorBlue4k) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/kingfrostii) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/KingFrostii) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@kingfrostiithedragon) [![Ata.book](https://kingfrostii.atabook.org/) 
 
 ## $$\color{#5addf8}{\textbf{Allowing users to add me on social media to chat with me!}}$$
 
