@@ -5,8 +5,19 @@
  # 𝕋𝕙𝕖 𝔼𝕝𝕖𝕞𝕖𝕟𝕥𝕤 𝕠𝕗 𝕥𝕙𝕖 𝔻𝕣𝕒𝕘𝕠𝕟𝕤!
 
 <div align="center"> 
- 
 
+<img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/48f3de4f-ae03-46d8-babf-da74d1649f4d" />
+
+$$\color{#6a34bb}{\textbf{⭐KingSolar⭐}$$
+
+<img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/501014f5-02e4-4619-b253-6f337ab3fdea" />
+
+$$\color{#36bcee}{\textbf{💦KingSea💦}$$
+  
+<img width="164" height="224" alt="Image" src="https://github.com/user-attachments/assets/31c21a9a-6728-4a08-8788-ec629d17fb47" />
+
+ $$\color{#47a439}{\textbf{🍃KingTerra🍃}}$$ 
+ 
 <img width="172" height="248" alt="Image" src="https://github.com/user-attachments/assets/ab63e2fd-b578-4589-bf29-b888d6318046" />
 
  $$\color{#ea9c26}{\textbf{🔥KingBlaze🔥}}$$ 
