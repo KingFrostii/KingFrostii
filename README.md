@@ -11,7 +11,7 @@
 
  $$\color{#ea9c26}{\textbf{🔥KingBlaze🔥}}$$ 
  
-<img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/05008032-9f6a-4d47-b694-5488b71f8109" />
+<img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/68cd6711-a326-4150-b323-31ce224dec40" />
 
 $$\color{#5addf8}{\textbf{❆KING FROSTII❆}}$$
 
