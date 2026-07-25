@@ -2,7 +2,10 @@
 
  # 𝕋𝕙𝕖 𝔼𝕝𝕖𝕞𝕖𝕟𝕥𝕤 𝕠𝕗 𝕥𝕙𝕖 𝔻𝕣𝕒𝕘𝕠𝕟𝕤!
  
-<img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/05008032-9f6a-4d47-b694-5488b71f8109" />{KingFrostii}
+<img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/05008032-9f6a-4d47-b694-5488b71f8109" />
+
+<div align="center"> 
+ $$\color{#5addf8}{\textbf{❆KING FROSTII❆}}$$
  
  $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
