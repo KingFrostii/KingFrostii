@@ -111,7 +111,7 @@ $$\color{#6a34bb}{\textbf{𝗥𝗲𝗮𝗱 𝗺𝘆}}$$ $$\color{#36bcee}{\textb
 
 $\color{#5addf8}\textsf{Loves to 𝗦𝗸𝗲𝘁𝗰𝗵𝗶𝗻𝗴 𝗼𝗿 𝗗𝗿𝗮𝘄𝗶𝗻𝗴.}$
 
-$\color{#5addf8}\textsf{Loves to 𝗪𝗮𝘁𝗰𝗵𝗶𝗻𝗴 𝗺𝗼𝘃𝗶𝗲𝘀 𝗼𝗿 𝘀𝗲𝗿𝗶𝗲𝘀.}%
+$\color{#5addf8}\textsf{Loves to 𝗪𝗮𝘁𝗰𝗵𝗶𝗻𝗴 𝗺𝗼𝘃𝗶𝗲𝘀 𝗼𝗿 𝘀𝗲𝗿𝗶𝗲𝘀.}$
 
 $\color{#5addf8}\textsf{Loves to 𝗦𝗹𝗲𝗲𝗽.}$
 
