@@ -13,8 +13,6 @@
 
 <div align="center"> 
  
-
- $$\color{#5addf8}{\textbf{❆KING FROSTII❆}}$$
  
  $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
