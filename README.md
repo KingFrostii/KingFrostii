@@ -2,34 +2,8 @@
  
  $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
- # 𝕋𝕙𝕖 𝔼𝕝𝕖𝕞𝕖𝕟𝕥𝕤 𝕠𝕗 𝕥𝕙𝕖 𝔻𝕣𝕒𝕘𝕠𝕟𝕤!
-
-<div align="center"> 
-
-<img width="176" height="244" alt="Image" src="https://github.com/user-attachments/assets/99f7407c-5275-4d1b-8ee3-65e7833a72a6" />
-
-$$\color{#6a34bb}{\textbf{⭐KingSolar⭐}}$$
-
-<div align="center"> 
+<div align="center">
  
-<img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/501014f5-02e4-4619-b253-6f337ab3fdea" />
-
-<div align="center"> 
- 
-$$\color{#36bcee}{\textbf{💦KingSea💦}}$$
-
-  <div align="center"> 
-   
-<img width="164" height="224" alt="Image" src="https://github.com/user-attachments/assets/31c21a9a-6728-4a08-8788-ec629d17fb47" />
-
- $$\color{#47a439}{\textbf{🍃KingTerra🍃}}$$ 
- 
-<img width="172" height="248" alt="Image" src="https://github.com/user-attachments/assets/ab63e2fd-b578-4589-bf29-b888d6318046" />
-
- $$\color{#ea9c26}{\textbf{🔥KingBlaze🔥}}$$ 
- 
-<div align="center"> 
-
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
 <div align="center"> 
@@ -58,7 +32,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 # $$\color{#5addf8}{\textbf{If your reading this, your all welcome to read my read.me!}}$$ <img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/68cd6711-a326-4150-b323-31ce224dec40" />
 
-$$\color{#5addf8}{\textbf{❆KING FROSTII❆}}$$
+$$\color{#5addf8}{\textbf{𝗔𝗯𝗼𝘂𝘁 𝗠𝗲!}}$$
 
  <p align="center"> 
 Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, King, and Frostern. I'm a he/him/they/them/it/its dragon [I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥]. And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too!
@@ -94,8 +68,8 @@ Not a toxic or rude person.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
-# $$\color{#148bdc}{\textbf{𝗛𝗮𝘁𝗲𝘀 𝗮𝗻𝗱 𝘀𝘂𝗳𝗳𝗲𝗿𝘀.}}$$
- 
+# $$\color{#148bdc}{\textbf{𝗛𝗮𝘁𝗲𝘀 𝗮𝗻𝗱 𝘀𝘂𝗳𝗳𝗲𝗿𝘀.}}$$ <img width="172" height="248" alt="Image" src="https://github.com/user-attachments/assets/ab63e2fd-b578-4589-bf29-b888d6318046" />
+
 I have a short term memory lost, i may not able to remember who u are or were.
 
 If someone tries to whisper to me, I detest being called gay, weirdo, stupid, idiot, etc, and more.
@@ -107,7 +81,7 @@ I'm not a shark, but that doesn't mean I appear to be...
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
 
-#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲!}}$$
+#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲!}}$$ <img width="164" height="224" alt="Image" src="https://github.com/user-attachments/assets/31c21a9a-6728-4a08-8788-ec629d17fb47" />
 
 I'll allow a random person if they're talkative, kind, respectful, and responsible! By whispering to me. If they're willing to add me.
 
@@ -117,7 +91,7 @@ Allowing interactions by whispering.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
-##  $$\color{#148bdc}{\textbf{𝗠𝘆 𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀.}}$$
+##  $$\color{#148bdc}{\textbf{𝗠𝘆 𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀.}}$$ <img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/501014f5-02e4-4619-b253-6f337ab3fdea" /> <img width="176" height="244" alt="Image" src="https://github.com/user-attachments/assets/99f7407c-5275-4d1b-8ee3-65e7833a72a6" />
 
 Loves to 𝗦𝗸𝗲𝘁𝗰𝗵𝗶𝗻𝗴 𝗼𝗿 𝗗𝗿𝗮𝘄𝗶𝗻𝗴 
 
