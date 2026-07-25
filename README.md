@@ -6,7 +6,7 @@
 
 <div align="center"> 
 
-<img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/48f3de4f-ae03-46d8-babf-da74d1649f4d" />
+<img width="176" height="244" alt="Image" src="https://github.com/user-attachments/assets/99f7407c-5275-4d1b-8ee3-65e7833a72a6" />
 
 $$\color{#6a34bb}{\textbf{⭐KingSolar⭐}$$
 
