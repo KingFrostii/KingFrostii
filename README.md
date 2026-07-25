@@ -103,15 +103,15 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 <img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/501014f5-02e4-4619-b253-6f337ab3fdea" /> <img width="176" height="244" alt="Image" src="https://github.com/user-attachments/assets/99f7407c-5275-4d1b-8ee3-65e7833a72a6" />
 
-Loves to 𝗦𝗸𝗲𝘁𝗰𝗵𝗶𝗻𝗴 𝗼𝗿 𝗗𝗿𝗮𝘄𝗶𝗻𝗴 
+Loves to 𝗦𝗸𝗲𝘁𝗰𝗵𝗶𝗻𝗴 𝗼𝗿 𝗗𝗿𝗮𝘄𝗶𝗻𝗴.
 
-Loves to 𝗪𝗮𝘁𝗰𝗵𝗶𝗻𝗴 𝗺𝗼𝘃𝗶𝗲𝘀 𝗼𝗿 𝘀𝗲𝗿𝗶𝗲𝘀 
+Loves to 𝗪𝗮𝘁𝗰𝗵𝗶𝗻𝗴 𝗺𝗼𝘃𝗶𝗲𝘀 𝗼𝗿 𝘀𝗲𝗿𝗶𝗲𝘀. 
 
-Loves to 𝗦𝗹𝗲𝗲𝗽
+Loves to 𝗦𝗹𝗲𝗲𝗽.
 
-Loves to 𝗜𝗻𝘁𝗲𝗿𝗮𝗰𝘁 
+Loves to 𝗜𝗻𝘁𝗲𝗿𝗮𝗰𝘁!
 
-Loves to 𝗣𝗹𝗮𝘆
+Loves to 𝗣𝗹𝗮𝘆.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
