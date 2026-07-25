@@ -1,3 +1,5 @@
+<div align="center">
+ 
 # $$\color{#5addf8}{\textbf{SCROLL DOWN IF U WANNA READ MY READ.ME!}}$$
 
 <div align="center">
