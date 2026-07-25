@@ -10,6 +10,8 @@
 
 $$\color{#6a34bb}{\textbf{⭐KingSolar⭐}$$
 
+<div align="center"> 
+ 
 <img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/501014f5-02e4-4619-b253-6f337ab3fdea" />
 
 $$\color{#36bcee}{\textbf{💦KingSea💦}$$
