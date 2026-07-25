@@ -99,6 +99,7 @@ Might be thinking I'm toxic or rude, but I'm not.
 Allowing interactions by whispering.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+
   <p align="center"> 
    
 ##  $$\color{#148bdc}{\textbf{𝗠𝘆 𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀.}}$$ 
@@ -119,13 +120,18 @@ Loves to 𝗣𝗹𝗮𝘆.
 
 Loves to 𝗖𝘂𝗱𝗱𝗹𝗲 𝗽𝗶𝗹𝗲𝘀!
 
+<p align="center"> 
+   
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
 ##  $$\color{#148bdc}{\textbf{𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗔𝗻𝗶𝗺𝗮𝗹𝘀.}}$$ 
 
 Red Pandas, Dogs, Cats, Mice/Mouse, Tigers, Lions, Cheetahs, Horses, Bears, Pandas, Dinosaurs, Dragons, Sharks, Megalodons, Polar Bears, Deers, Lynxs, Lambs, Sheeps, Hyenas, Wolfs, Otters, Penguins, Eagles, Owls, Beavers, Bunnies, Rabbits, Gecko's, Lizards, Roosters, Moutain Lions, Foxs, Kangaroos, Axolotles, Seahorses, Jackals, Marten, and Snakes!
 
-
+<p align="center"> 
+ 
+$${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+ 
 
  
 
