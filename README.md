@@ -86,7 +86,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
  <p align="center"> 
   
-#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲^^!}}$$ 
+#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲!}}$$ 
 
 $$\color{#47a439}{\textbf{:𝗗}}$$
 
