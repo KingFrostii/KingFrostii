@@ -109,17 +109,17 @@ $$\color{#6a34bb}{\textbf{𝗥𝗲𝗮𝗱 𝗺𝘆}}$$ $$\color{#36bcee}{\textb
 
 <img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/501014f5-02e4-4619-b253-6f337ab3fdea" /> <img width="176" height="244" alt="Image" src="https://github.com/user-attachments/assets/99f7407c-5275-4d1b-8ee3-65e7833a72a6" />
 
-Loves to 𝗦𝗸𝗲𝘁𝗰𝗵𝗶𝗻𝗴 𝗼𝗿 𝗗𝗿𝗮𝘄𝗶𝗻𝗴.
+$\color{#5addf8}\textsf{Loves to 𝗦𝗸𝗲𝘁𝗰𝗵𝗶𝗻𝗴 𝗼𝗿 𝗗𝗿𝗮𝘄𝗶𝗻𝗴.}$
 
-Loves to 𝗪𝗮𝘁𝗰𝗵𝗶𝗻𝗴 𝗺𝗼𝘃𝗶𝗲𝘀 𝗼𝗿 𝘀𝗲𝗿𝗶𝗲𝘀. 
+$\color{#5addf8}\textsf{Loves to 𝗪𝗮𝘁𝗰𝗵𝗶𝗻𝗴 𝗺𝗼𝘃𝗶𝗲𝘀 𝗼𝗿 𝘀𝗲𝗿𝗶𝗲𝘀.}%
 
-Loves to 𝗦𝗹𝗲𝗲𝗽.
+$\color{#5addf8}\textsf{Loves to 𝗦𝗹𝗲𝗲𝗽.}$
 
-Loves to 𝗜𝗻𝘁𝗲𝗿𝗮𝗰𝘁!
+$\color{#5addf8}\textsf{Loves to 𝗜𝗻𝘁𝗲𝗿𝗮𝗰𝘁!}$
 
-Loves to 𝗣𝗹𝗮𝘆.
+$\color{#5addf8}\textsf{Loves to 𝗣𝗹𝗮𝘆.}$
 
-Loves to 𝗖𝘂𝗱𝗱𝗹𝗲 𝗽𝗶𝗹𝗲𝘀!
+$\color{#5addf8}\textsf{Loves to 𝗖𝘂𝗱𝗱𝗹𝗲 𝗽𝗶𝗹𝗲𝘀!}$
 
 <p align="center"> 
    
@@ -127,7 +127,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 ##  $$\color{#148bdc}{\textbf{𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗔𝗻𝗶𝗺𝗮𝗹𝘀!}}$$ 
 
-Red Pandas, Dogs, Cats, Mice/Mouse, Tigers, Lions, Cheetahs, Horses, Bears, Pandas, Dinosaurs, Dragons, Sharks, Megalodons, Polar Bears, Deers, Lynxs, Lambs, Sheeps, Hyenas, Wolfs, Otters, Penguins, Eagles, Owls, Beavers, Bunnies, Rabbits, Gecko's, Lizards, Roosters, Moutain Lions, Foxs, Kangaroos, Axolotles, Seahorses, Jackals, Marten, and Snakes!
+$\color{#5addf8}\textsf{Red Pandas, Dogs, Cats, Mice/Mouse, Tigers, Lions, Cheetahs, Horses, Bears, Pandas, Dinosaurs, Dragons, Sharks, Megalodons, Polar Bears, Deers, Lynxs, Lambs, Sheeps, Hyenas, Wolfs, Otters, Penguins, Eagles, Owls, Beavers, Bunnies, Rabbits, Gecko's, Lizards, Roosters, Moutain Lions, Foxs, Kangaroos, Axolotles, Seahorses, Jackals, Marten, and Snakes!}$
 
 <p align="center"> 
  
