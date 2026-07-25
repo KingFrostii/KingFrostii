@@ -86,7 +86,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
  <p align="center"> 
   
-#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲!}}$$ 
+#  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲^^!}}$$ 
 
 $$\color{#47a439}{\textbf{:𝗗}}$$
 
@@ -102,7 +102,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
   <p align="center"> 
    
-##  $$\color{#148bdc}{\textbf{𝗠𝘆 𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀.}}$$ 
+##  $$\color{#148bdc}{\textbf{𝗠𝘆 𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀!}}$$ 
 
 $$\color{#6a34bb}{\textbf{𝗥𝗲𝗮𝗱 𝗺𝘆}}$$ $$\color{#36bcee}{\textbf{𝗜𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀!}}$$
 
@@ -124,7 +124,7 @@ Loves to 𝗖𝘂𝗱𝗱𝗹𝗲 𝗽𝗶𝗹𝗲𝘀!
    
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
-##  $$\color{#148bdc}{\textbf{𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗔𝗻𝗶𝗺𝗮𝗹𝘀.}}$$ 
+##  $$\color{#148bdc}{\textbf{𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗔𝗻𝗶𝗺𝗮𝗹𝘀!}}$$ 
 
 Red Pandas, Dogs, Cats, Mice/Mouse, Tigers, Lions, Cheetahs, Horses, Bears, Pandas, Dinosaurs, Dragons, Sharks, Megalodons, Polar Bears, Deers, Lynxs, Lambs, Sheeps, Hyenas, Wolfs, Otters, Penguins, Eagles, Owls, Beavers, Bunnies, Rabbits, Gecko's, Lizards, Roosters, Moutain Lions, Foxs, Kangaroos, Axolotles, Seahorses, Jackals, Marten, and Snakes!
 
