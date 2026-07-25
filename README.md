@@ -84,6 +84,8 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
   
 #  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲!}}$$ 
 
+$$\color{#47a439}{\textbf{𝗜𝗺 𝘀𝗼 𝗵𝗮𝗽𝗽𝘆 𝘁𝗼𝗱𝗮𝘆!}}$$
+
 <img width="164" height="224" alt="Image" src="https://github.com/user-attachments/assets/31c21a9a-6728-4a08-8788-ec629d17fb47" />
 
 I'll allow a random person if they're talkative, kind, respectful, and responsible! By whispering to me. If they're willing to add me.
@@ -96,6 +98,8 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
   <p align="center"> 
    
 ##  $$\color{#148bdc}{\textbf{𝗠𝘆 𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀.}}$$ 
+
+$$\color{#36bcee n 6a34bb}{\textbf{𝗜𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀}}$$
 
 <img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/501014f5-02e4-4619-b253-6f337ab3fdea" /> <img width="176" height="244" alt="Image" src="https://github.com/user-attachments/assets/99f7407c-5275-4d1b-8ee3-65e7833a72a6" />
 
@@ -111,5 +115,9 @@ Loves to 𝗣𝗹𝗮𝘆.
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
- 
 
+6a34bb
+
+
+ 
+ea9c26
