@@ -70,6 +70,8 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 <img width="172" height="248" alt="Image" src="https://github.com/user-attachments/assets/ab63e2fd-b578-4589-bf29-b888d6318046" />
 
+$${\color{#ea9c26}｡｡｡｡｡｡}$$
+
 I have a short term memory lost, i may not able to remember who u are or were.
 
 If someone tries to whisper to me, I detest being called gay, weirdo, stupid, idiot, etc, and more.
@@ -119,4 +121,4 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 
  
-ea9c26
+
