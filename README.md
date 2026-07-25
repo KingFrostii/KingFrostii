@@ -75,13 +75,13 @@ $${\color{#ea9c26}｡｡｡｡｡｡}$$
 
 
 
-I have a short term memory lost, i may not able to remember who u are or were.
+$\color{#ff1700}\textsf{I have a short term memory lost, i may not able to remember who u are or were.}$
 
-If someone tries to whisper to me, I detest being called gay, weirdo, stupid, idiot, etc, and more.
+$\color{#ff1700}\textsf{If someone tries to whisper to me, I detest being called gay, weirdo, stupid, idiot, etc, and more.}$
 
-Someone is referring to me by calling me "MAMA."
+$\color{#ff1700}\textsf{Someone is referring to me by calling me "MAMA."}$
 
-I'm not a shark, but that doesn't mean I appear to be...
+$\color{#ff1700}\textsf{I'm not a shark, but that doesn't mean I appear to be...}$
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
