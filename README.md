@@ -10,6 +10,7 @@
 <img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/05008032-9f6a-4d47-b694-5488b71f8109" />
 
 <div align="center"> 
+  $$\color{#ea9c26}{\textbf{🔥KingBlaze🔥}}$$
  
  $$\color{#5addf8}{\textbf{❆KING FROSTII❆}}$$
  
