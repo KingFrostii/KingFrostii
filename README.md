@@ -11,7 +11,7 @@
 
 <div align="center"> 
  
-  $$\color{#ea9c26}{\textbf{🔥KingBlaze🔥}}$$
+ $$\color{#ea9c26}{\textbf{🔥KingBlaze🔥}}$$
  
  $$\color{#5addf8}{\textbf{❆KING FROSTII❆}}$$
  
