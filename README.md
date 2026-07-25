@@ -39,17 +39,17 @@ Hello, my name is KingFrostii! My nicknames are $\color{#5addf8}\textsf{Frost, F
 $\color{#ff1700}\textsf{[⚠]..𝗪𝗔𝗥𝗡𝗜𝗡𝗚..[⚠]}$
 
 <p align="center"> 
-I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.
+$\color{#ff1700}\textsf{I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.}$
  
-I WILL NOT LET YOU SHIP MY 𝐎𝐂 WITH YOUR FANONS OR CANONS IN YOUR 𝗢𝗪𝗡 STYLE.
+$\color{#ff1700}\textsf{I WILL NOT LET YOU SHIP MY 𝐎𝐂 WITH YOUR FANONS OR CANONS IN YOUR 𝗢𝗪𝗡 STYLE.}$
 
-AVOID FALLING IN LOVE WITH ME BECAUSE IF YOU DO, I MAY BLOCK YOU. -I really don't care if my friends start falling in love with me.
+$\color{#ff1700}\textsf{AVOID FALLING IN LOVE WITH ME BECAUSE IF YOU DO, I MAY BLOCK YOU. -I really don't care if my friends start falling in love with me.}$
 
-I DON'T 𝐁𝚰𝐓𝐄.
+$\color{#ff1700}\textsf{I DON'T 𝐁𝚰𝐓𝐄.}$
 
-AVOID 𝐒𝐏𝐀𝐌 𝐖𝐇𝚰𝐒𝐏𝐄𝐑𝐒.
+$\color{#ff1700}\textsf{AVOID 𝐒𝐏𝐀𝐌 𝐖𝐇𝚰𝐒𝐏𝐄𝐑𝐒.}$
 
-NOT A 𝐏𝐑𝐎𝐔𝐃 𝐒𝐄𝐋𝐅𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐏𝐑𝐎𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐃𝐀𝐑𝐊𝐒𝐇𝚰𝐏𝐏𝐄𝐑.
+$\color{#ff1700}\textsf{NOT A 𝐏𝐑𝐎𝐔𝐃 𝐒𝐄𝐋𝐅𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐏𝐑𝐎𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐃𝐀𝐑𝐊𝐒𝐇𝚰𝐏𝐏𝐄𝐑.}$
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
