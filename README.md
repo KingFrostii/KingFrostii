@@ -28,14 +28,9 @@ $$\color{#36bcee}{\textbf{💦KingSea💦}}$$
 
  $$\color{#ea9c26}{\textbf{🔥KingBlaze🔥}}$$ 
  
-<img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/68cd6711-a326-4150-b323-31ce224dec40" />
-
-$$\color{#5addf8}{\textbf{❆KING FROSTII❆}}$$
-
 <div align="center"> 
- 
- 
- $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+
+$${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
 <div align="center"> 
  
@@ -47,7 +42,7 @@ $$\color{#e3faff}{\textbf{𝚰 𝐎𝐍𝐋𝐘 𝐅𝐎𝐋𝐋𝐎𝐖 𝐏�
 
 <div align="center"> 
 
- $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
+$${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
 <div align="center">
  
@@ -61,7 +56,9 @@ $$\color{#e3faff}{\textbf{𝚰 𝐎𝐍𝐋𝐘 𝐅𝐎𝐋𝐋𝐎𝐖 𝐏�
  <div align="center">
   
 
-# $$\color{#5addf8}{\textbf{If your reading this, your all welcome to read my read.me!}}$$
+# $$\color{#5addf8}{\textbf{If your reading this, your all welcome to read my read.me!}}$$ <img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/68cd6711-a326-4150-b323-31ce224dec40" />
+
+$$\color{#5addf8}{\textbf{❆KING FROSTII❆}}$$
 
  <p align="center"> 
 Hello, my name is KingFrostii! My nicknames are Frost, Frosti/Frostii, Froster, King, and Frostern. I'm a he/him/they/them/it/its dragon [I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥]. And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too!
