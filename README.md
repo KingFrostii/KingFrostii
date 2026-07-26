@@ -55,6 +55,8 @@ $\color{#ff1700}\textsf{AVOID 𝐒𝐏𝐀𝐌 𝐖𝐇𝚰𝐒𝐏𝐄𝐑𝐒.
 
 $\color{#ff1700}\textsf{NOT A 𝐏𝐑𝐎𝐔𝐃 𝐒𝐄𝐋𝐅𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐏𝐑𝐎𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐃𝐀𝐑𝐊𝐒𝐇𝚰𝐏𝐏𝐄𝐑.}$
 
+$\color{#ff1700}\textsf{AVOID 𝗙𝗘𝗠𝗕𝗢𝗬𝗦, 𝐒𝐄𝐋𝐅𝐒𝐇𝚰𝐏𝐏𝐄𝐑, 𝐏𝐑𝐎𝐒𝐇𝚰𝐏𝐏𝐄𝐑 AND 𝐃𝐀𝐑𝐊𝐒𝐇𝚰𝐏𝐏𝐄𝐑.}$
+
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
 I will allow you to draw me in your 𝐎𝐖𝐍 styles. -𝗶𝗳 𝗽𝗲𝗿𝗺𝗶𝘀
