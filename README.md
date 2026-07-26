@@ -75,7 +75,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 $${\color{#ea9c26}𝗦𝘂𝗳𝗳𝗲𝗿𝘀｡}$$
 
-<img width="172" height="248" alt="Image" src="https://github.com/user-attachments/assets/ab63e2fd-b578-4589-bf29-b888d6318046" />
+<img width="168" height="248" alt="Image" src="https://github.com/user-attachments/assets/68c316eb-2b2f-4e95-bf3a-47a835c2ca07" />
 
 
 
