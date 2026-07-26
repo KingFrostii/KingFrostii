@@ -93,9 +93,9 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
   
 #  $$\color{#148bdc}{\textbf{𝗕𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘄𝗶𝘁𝗵 𝗺𝗲!}}$$ 
 
-$$\color{#47a439}{\textbf{:𝗗}}$$
+$$\color{#47a439}{\textbf{𝗛𝗲𝗹𝗹𝗼 𝗳𝗲𝗹𝗹𝗼𝘄 𝗽𝗲𝗼𝗽𝗹𝗲𝘀!}}$$
 
-<img width="164" height="224" alt="Image" src="https://github.com/user-attachments/assets/31c21a9a-6728-4a08-8788-ec629d17fb47" />
+<img width="168" height="224" alt="Image" src="https://github.com/user-attachments/assets/da44d4f8-507c-4a52-9de6-92e2ddaef086" />
 
 I'll allow a random person if they're talkative, kind, respectful, and responsible! By whispering to me. If they're willing to add me.
 
