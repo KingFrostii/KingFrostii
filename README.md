@@ -73,7 +73,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 # $$\color{#148bdc}{\textbf{𝗛𝗮𝘁𝗲𝘀 𝗮𝗻𝗱 𝘀𝘂𝗳𝗳𝗲𝗿𝘀.}}$$ 
 
-$${\color{#ea9c26}{\textbf{𝗡𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁𝘀 𝗳𝗼𝗿 𝘆𝗼𝘂.}}$$
+$$\color{#ea9c26}{\textbf{𝗡𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁𝘀 𝗳𝗼𝗿 𝘆𝗼𝘂.}}$$
 
 <img width="168" height="248" alt="Image" src="https://github.com/user-attachments/assets/68c316eb-2b2f-4e95-bf3a-47a835c2ca07" />
 
