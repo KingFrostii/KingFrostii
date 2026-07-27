@@ -67,7 +67,7 @@ $\color{#5addf8}\textsf{I will allow you to draw me in your 𝐎𝐖𝐍 styles.
 
 $\color{#5addf8}\textsf{Always or not always active. -not always active during exams..}$
 
-$\color{#5addf8}\textsf{Hugs and cuddles are welcome whenever I'm AFK ^^.}$
+$\color{#5addf8}\textsf{Hugs and cuddles are welcome whenever I'm AFK.}$
 
 $\color{#5addf8}\textsf{Don't cover or copy my 𝐎𝐂. - Only with friends if they want to cover me.}$
 
