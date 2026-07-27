@@ -103,11 +103,11 @@ $$\color{#47a439}{\textbf{𝗛𝗲𝗹𝗹𝗼 𝗳𝗲𝗹𝗹𝗼𝘄 𝗽𝗲
 
 <img width="168" height="224" alt="Image" src="https://github.com/user-attachments/assets/da44d4f8-507c-4a52-9de6-92e2ddaef086" />
 
-I'll allow a random person if they're talkative, kind, respectful, and responsible! By whispering to me. If they're willing to add me.
+$\color{#5addf8}\textsf{I'll allow a random person if they're talkative, kind, respectful, and responsible! By whispering to me. If they're willing to add me.}$
 
-Might be thinking I'm toxic or rude, but I'm not.
+$\color{#5addf8}\textsf{Might be thinking I'm toxic or rude, but I'm not.}$
 
-Allowing interactions by whispering.
+$\color{#5addf8}\textsf{Allowing interactions by whispering.}$
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
