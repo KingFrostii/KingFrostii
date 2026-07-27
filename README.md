@@ -63,15 +63,15 @@ $\color{#ff1700}\textsf{AVOID 𝗙𝗘𝗠𝗕𝗢𝗬𝗦, 𝐒𝐄𝐋𝐅𝐒
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
-I will allow you to draw me in your 𝐎𝐖𝐍 styles. -𝗶𝗳 𝗽𝗲𝗿𝗺𝗶𝘀
+$\color{#5addf8}\textsf{I will allow you to draw me in your 𝐎𝐖𝐍 styles. -𝗶𝗳 𝗽𝗲𝗿𝗺𝗶𝘀}$
 
-Always or not always active. -not always active during exams..
+$\color{#5addf8}\textsf{Always or not always active. -not always active during exams..}$
 
-Hugs and cuddles are welcome whenever I'm AFK ^^.
+$\color{#5addf8}\textsf{Hugs and cuddles are welcome whenever I'm AFK ^^.}$
 
-Don't cover or copy my 𝐎𝐂. - Only with friends if they want to cover me.
+$\color{#5addf8}\textsf{Don't cover or copy my 𝐎𝐂. - Only with friends if they want to cover me.}$
 
-Not a toxic or rude person.
+$\color{#5addf8}\textsf{Not a toxic or rude person.}$
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
