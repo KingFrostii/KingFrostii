@@ -139,6 +139,10 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 ##  $$\color{#148bdc}{\textbf{𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗔𝗻𝗶𝗺𝗮𝗹𝘀!}}$$ 
 
+<img width="293" height="200" alt="Image" src="https://github.com/user-attachments/assets/733a387e-b3ff-47c8-8e08-e30da4aff550" />
+
+$$\color{#5addf8}{\textbf{𝗪𝗵𝗮𝘁'𝘀 𝘆𝗼𝘂𝗿 𝗳𝗮𝘃 𝗮𝗻𝗶𝗺𝗮𝗹?}}$$ 
+
 $\color{#5addf8}\textsf{Red Pandas}$
 
 $\color{#5addf8}\textsf{Dogs}$  
