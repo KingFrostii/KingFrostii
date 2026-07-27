@@ -8,7 +8,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
  
 <div align="center"> 
  
-[![](https://komarev.com/ghpvc/?username=KingFrostii&icon=5addf8=0)](https://visitcount.itsvg.in)
+[![](https://komarev.com/ghpvc/?username=KingFrostii&icon=5addf8=❆)](https://visitcount.itsvg.in)
 
 $$\color{#e3faff}{\textbf{❆𝗦𝗣𝗔𝗠 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥❆}}$$
 
@@ -135,7 +135,83 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 
 ##  $$\color{#148bdc}{\textbf{𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗔𝗻𝗶𝗺𝗮𝗹𝘀!}}$$ 
 
-Red Pandas, Dogs, Cats, Mice/Mouse, Tigers, Lions, Cheetahs, Horses, Bears, Pandas, Dinosaurs, Dragons, Sharks, Megalodons, Polar Bears, Deers, Lynxs, Lambs, Sheeps, Hyenas, Wolfs, Otters, Penguins, Eagles, Owls, Beavers, Bunnies, Rabbits, Gecko's, Lizards, Roosters, Moutain Lions, Foxs, Kangaroos, Axolotles, Seahorses, Jackals, Marten, and Snakes!
+$\color{#5addf8}\textsf{Red Pandas}$
+
+$\color{#5addf8}\textsf{Dogs}$  
+
+$\color{#5addf8}\textsf{Cats}$
+
+$\color{#5addf8}\textsf{Mice/Mouse}$
+
+$\color{#5addf8}\textsf{Tigers}$
+
+$\color{#5addf8}\textsf{Lions}$
+
+$\color{#5addf8}\textsf{Cheetahs}$
+
+$\color{#5addf8}\textsf{Horses}$
+
+$\color{#5addf8}\textsf{Bears}$
+
+$\color{#5addf8}\textsf{Pandas}$
+
+$\color{#5addf8}\textsf{Dinosaurs}$
+
+$\color{#5addf8}\textsf{Dragons}$
+
+$\color{#5addf8}\textsf{Sharks}$
+
+$\color{#5addf8}\textsf{Megalodons}$
+
+$\color{#5addf8}\textsf{Polar Bears}$
+
+$\color{#5addf8}\textsf{Deers}$
+
+$\color{#5addf8}\textsf{Lynxs}$
+
+$\color{#5addf8}\textsf{Lambs}$
+
+$\color{#5addf8}\textsf{Sheeps}$
+
+$\color{#5addf8}\textsf{Hyenas}$
+
+$\color{#5addf8}\textsf{Wolfs}$
+
+$\color{#5addf8}\textsf{Otters}$
+
+$\color{#5addf8}\textsf{Penguins}$
+
+$\color{#5addf8}\textsf{Eagles}$
+
+$\color{#5addf8}\textsf{Owls}$
+
+$\color{#5addf8}\textsf{Beavers}$
+
+$\color{#5addf8}\textsf{Bunnies}$
+
+$\color{#5addf8}\textsf{Rabbits}$
+
+$\color{#5addf8}\textsf{Geckos}$
+
+$\color{#5addf8}\textsf{Lizards}$
+
+$\color{#5addf8}\textsf{Roosters}$
+
+$\color{#5addf8}\textsf{Moutain Lions}$
+
+$\color{#5addf8}\textsf{Foxes}$
+
+$\color{#5addf8}\textsf{Kangaroos}$
+
+$\color{#5addf8}\textsf{Axolotles}$
+
+$\color{#5addf8}\textsf{Seahorses}$
+
+$\color{#5addf8}\textsf{Jackals}$
+
+$\color{#5addf8}\textsf{Marten}$
+
+$\color{#5addf8}\textsf{Snakes}$
 
 <p align="center"> 
  
