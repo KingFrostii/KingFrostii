@@ -228,7 +228,15 @@ $\color{#5addf8}\textsf{Snakes}$
   
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
-$\color{#5addf8}\textsf{I love exploring some areas on Pony Town. You might find me sitting in the DW area, the Forsaken area, the MLP area, 
-the SC area, and the PPT area.}$
+$\color{#5addf8}\textsf{I love exploring some areas on Pony Town. 
+$\color{#5addf8}\textsf{You might find me sitting in the}$
+
+$\color{#5addf8}\textsf{DW area}$
+
+$\color{#5addf8}\textsf{the Forsaken area, the MLP area}$
+
+$\color{#5addf8}\textsf{the SC area}$
+
+$\color{#5addf8}\textsf{the PPT area}$
  
 
