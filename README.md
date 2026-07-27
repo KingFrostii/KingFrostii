@@ -42,6 +42,10 @@ Hello, my name is KingFrostii! My nicknames are $\color{#5addf8}\textsf{Frost, F
  
 $\color{#ff1700}\textsf{[⚠]..𝗪𝗔𝗥𝗡𝗜𝗡𝗚..[⚠]}$
 
+<img width="115" height="81" alt="Image" src="https://github.com/user-attachments/assets/e3663f66-35d5-4ad8-bce9-5df722d5f79e" />
+
+$$\color{#ff1700}{\textbf{ι ¢αη ѕєє уσυ..}}$$
+
 <p align="center"> 
 $\color{#ff1700}\textsf{I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.}$
  
