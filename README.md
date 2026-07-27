@@ -35,7 +35,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 $$\color{#5addf8}{\textbf{𝗔𝗯𝗼𝘂𝘁 𝗠𝗲!}}$$
 
  <p align="center"> 
-Hello, my name is KingFrostii! My nicknames are $\color{#5addf8}\textsf{Frost, Frosti/Frostii, Froster, King, and Frostern.}$ I'm a he/him/they/them/it/its dragon  $\color{#ff1700}\textsf{[I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥].}$ And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too!
+Hello, my name is $$\color{#5addf8}{\textbf{KingFrostii!}$ My nicknames are $\color{#5addf8}\textsf{Frost, Frosti/Frostii, Froster, King, and Frostern.}$ I'm a he/him/they/them/it/its dragon  $\color{#ff1700}\textsf{[I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥].}$ And I go AFK, but I am always active. I might disconnect when I'm an AFK. Curious and a cheerful dragon. Occasionally I might feel jealous, but I've learned not to replicate someone else's GitHub. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too!
 <p align="center"> 
  
  $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
@@ -133,6 +133,7 @@ $\color{#5addf8}\textsf{Loves to 𝗖𝘂𝗱𝗱𝗹𝗲 𝗽𝗶𝗹𝗲𝘀!}
 
 $\color{#5addf8}\textsf{Loves 𝗟𝗶𝘀𝘁𝗲𝗻𝗶𝗻𝗴 𝘁𝗼 𝗺𝘂𝘀𝗶𝗰𝘀.}$
 
+
 <p align="center"> 
    
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
@@ -223,8 +224,10 @@ $\color{#5addf8}\textsf{Snakes}$
 
 <p align="center"> 
  
+# $$\color{#148bdc}{\textbf{𝗟𝗼𝗰𝗮𝘁𝗶𝗼𝗻𝘀  𝗜𝗺 𝗶𝗻.}}$$ 
+  
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
-
+$\color{#5addf8}\textsf{I love exploring some areas on Pony Town. You might find me sitting in the DW area, the Forsaken area, the MLP area, the SC area, and the PPT area.}$
  
 
