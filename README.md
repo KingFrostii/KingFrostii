@@ -224,9 +224,10 @@ $\color{#5addf8}\textsf{Snakes}$
 
 <p align="center"> 
  
-# $$\color{#148bdc}{\textbf{𝗟𝗼𝗰𝗮𝘁𝗶𝗼𝗻𝘀  𝗜𝗺 𝗶𝗻.}}$$ 
+# $$\color{#148bdc}{\textbf{𝗟𝗼𝗰𝗮𝘁𝗶𝗼𝗻𝘀  𝗜𝗺 𝗶𝗻.}}$$
 
-<img width="293" height="200" alt="Image" src="https://github.com/user-attachments/assets/635f5abe-53b2-41db-9373-affd35becbbd" />
+<img src="https://blob:https://ph.pinterest.com/1cccf7c8-0f13-4690-b74b-c8a2a15b1c93" alt="Alt Text" width="400">
+
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
