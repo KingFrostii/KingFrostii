@@ -30,7 +30,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
  <div align="center">
   
 
-# $$\color{#5addf8}{\textbf{If your reading this, your all welcome to read my read.me!}}$$ <img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/68cd6711-a326-4150-b323-31ce224dec40" />
+# $$\color{#5addf8}{\textbf{If your reading this, you're all welcome to read my read.me!}}$$ <img width="188" height="212" alt="Image" src="https://github.com/user-attachments/assets/68cd6711-a326-4150-b323-31ce224dec40" />
 
 $$\color{#5addf8}{\textbf{𝗔𝗯𝗼𝘂𝘁 𝗠𝗲!}}$$
 
