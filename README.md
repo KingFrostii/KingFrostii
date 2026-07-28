@@ -109,6 +109,8 @@ $\color{#5addf8}\textsf{Might be thinking I'm toxic or rude, but I'm not.}$
 
 $\color{#5addf8}\textsf{Allowing interactions by whispering.}$
 
+$\color{#5addf8}\textsf{Allowing gift skins!!// OMG I LOVE GIFT SKINS!}$
+
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
   <p align="center"> 
