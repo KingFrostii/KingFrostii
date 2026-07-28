@@ -236,7 +236,7 @@ $\color{#5addf8}\textsf{You might find me sitting in the}$
 
 $\color{#5addf8}\textsf{DW area}$
 
-$\color{#5addf8}\textsf{the Forsaken area }$
+$\color{#5addf8}\textsf{the FSKN area }$
 
 $\color{#5addf8}\textsf{the MLP area}$
 
