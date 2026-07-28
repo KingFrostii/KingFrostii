@@ -226,9 +226,6 @@ $\color{#5addf8}\textsf{Snakes}$
  
 # $$\color{#148bdc}{\textbf{𝗟𝗼𝗰𝗮𝘁𝗶𝗼𝗻𝘀  𝗜𝗺 𝗶𝗻.}}$$
 
-<img src="https://blob:https://ph.pinterest.com/1cccf7c8-0f13-4690-b74b-c8a2a15b1c93" alt="Alt Text" width="400">
-
-
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
 $\color{#5addf8}\textsf{I love exploring some areas on Pony Town.}$ 
