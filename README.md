@@ -230,7 +230,12 @@ $\color{#5addf8}\textsf{Snakes}$
  
 # $$\color{#148bdc}{\textbf{𝗟𝗼𝗰𝗮𝘁𝗶𝗼𝗻𝘀  𝗜𝗺 𝗶𝗻.}}$$
 
+
+
 <img width="352" height="500" alt="Image" src="https://github.com/user-attachments/assets/350a8767-6658-4231-b0e9-58a2e9e36c16" />
+
+
+
 
 <p align="center"> 
 
