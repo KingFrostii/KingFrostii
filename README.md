@@ -230,7 +230,9 @@ $\color{#5addf8}\textsf{Snakes}$
  
 # $$\color{#148bdc}{\textbf{𝗟𝗼𝗰𝗮𝘁𝗶𝗼𝗻𝘀  𝗜𝗺 𝗶𝗻.}}$$
 
-$$\color{#5addf8}{\textbf{𝗪𝗵𝗲𝗿𝗲 𝗮𝗺 𝗶? 𝗜 𝗮𝗺 𝗵𝗶𝗱𝗶𝗻𝗴 𝗶𝗻 𝘁𝗵𝗲 𝗺𝗼𝘂𝗻𝘁𝗮𝗶𝗻,✨✨}}$$
+<img width="498" height="498" alt="Image" src="https://github.com/user-attachments/assets/b2717371-6cd7-4f4f-b4a8-756f5e59e5ee" />
+
+$$\color{#5addf8}{\textbf{𝗪𝗵𝗲𝗿𝗲 𝗮𝗺 𝗶? 𝗜 𝗮𝗺 𝗵𝗶𝗱𝗶𝗻𝗴 𝗶𝗻 𝘁𝗵𝗲 𝗺𝗼𝘂𝗻𝘁𝗮𝗶𝗻✨✨}}$$
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
