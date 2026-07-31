@@ -117,7 +117,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
    
 ##  $$\color{#148bdc}{\textbf{𝗠𝘆 𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀!}}$$ 
 
-$$\color{#6a34bb}{\textbf{𝗥𝗲𝗮𝗱 𝗺𝘆}}$$ $$\color{#36bcee}{\textbf{𝗛𝗼𝗯𝗯𝗶𝗲𝘀!}}$$
+$$\color{#6a34bb}{\textbf{𝗥𝗲𝗮𝗱 𝗺𝘆}}$$ $$\color{#36bcee}{\textbf{𝗙𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗛𝗼𝗯𝗯𝗶𝗲𝘀!}}$$
 
 <img width="176" height="228" alt="Image" src="https://github.com/user-attachments/assets/501014f5-02e4-4619-b253-6f337ab3fdea" /> <img width="176" height="244" alt="Image" src="https://github.com/user-attachments/assets/99f7407c-5275-4d1b-8ee3-65e7833a72a6" />
 
