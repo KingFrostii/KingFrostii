@@ -1,8 +1,14 @@
-<div align="center">
+<div align="center"> 
  
 # $$\color{#5addf8}{\textbf{❆❆SCROLL DOWN IF U WANNA READ MY READ.ME!❆❆}}$$
 
 <div align="center">
+ 
+# $$\color{#ffec00}{\textbf{♕𝗧𝗛𝗔𝗡𝗞𝗦 𝗧𝗢♕}}$$ 
+
+[PONYTOWN CONFESSIONS](https://github.com/ponytown-confessions) [PONYTOWN HALLS OF MEDIA](https://github.com/pt-hall-of-media) [PONYTOWN CONTRIUBUTERS](https://github.com/pt-contributers) [PONYTOWN OF AWESOMENESS](https://github.com/pt-of-awesomeness) [PONYTOWN FANS / FANS TOWN](https://github.com/fans-town) [PONYTOWN NOMINEE](https://github.com/pt-nominee)
+  
+<div align="center"> 
  
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
  
