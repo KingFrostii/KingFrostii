@@ -105,11 +105,13 @@ $$\color{#47a439}{\textbf{𝗛𝗲𝗹𝗹𝗼 𝗳𝗲𝗹𝗹𝗼𝘄 𝗽𝗲
 
 $\color{#5addf8}\textsf{I'll allow a random person if they're talkative, kind, respectful, and responsible! By whispering to me. If they're willing to add me.}$
 
-$\color{#5addf8}\textsf{Might be thinking I'm toxic or rude, but I'm not.}$
+$\color{#5addf8}\textsf{Might be thinking I'm toxic or rude, but I'm not..}$
 
 $\color{#5addf8}\textsf{Allowing interactions by whispering.}$
 
 $\color{#5addf8}\textsf{Allowing gift skins!!// OMG I LOVE GIFT SKINS!}$
+
+$\color{#5addf8}\textsf{Might randomly interact with you and your friends.}$
 
 $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
 
@@ -230,12 +232,10 @@ $\color{#5addf8}\textsf{Snakes}$
  
 # $$\color{#148bdc}{\textbf{𝗟𝗼𝗰𝗮𝘁𝗶𝗼𝗻𝘀  𝗜𝗺 𝗶𝗻.}}$$
 
-<img width="236" height="268" alt="Image" src="https://github.com/user-attachments/assets/4d1c074f-955f-4beb-a7cb-8bf10c035bfd" />
-
 $$\color{#e8e9fc}{\textbf{𝗪𝗵𝗲𝗿𝗲 𝗮𝗺 𝗶? 𝗜 𝗮𝗺 𝗵𝗶𝗱𝗶𝗻𝗴 𝗶𝗻 𝘁𝗵𝗲 𝗺𝗼𝘂𝗻𝘁𝗮𝗶𝗻✨✨}}$$
 
-$${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
- 
+<img width="236" height="268" alt="Image" src="https://github.com/user-attachments/assets/4d1c074f-955f-4beb-a7cb-8bf10c035bfd" />
+
 $\color{#5addf8}\textsf{I love exploring some areas on Pony Town.}$ 
 
 $\color{#5addf8}\textsf{You might find me sitting in the}$
