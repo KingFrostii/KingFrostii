@@ -41,7 +41,7 @@ $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆�
 $$\color{#5addf8}{\textbf{𝗔𝗯𝗼𝘂𝘁 𝗠𝗲!}}$$
 
  <p align="center"> 
-Hello, my name is KingFrostii! My nicknames are $\color{#5addf8}\textsf{Frost, Frosti/Frostii, Froster, King, and Frostern.}$ I'm a he/him/they/them/it/its dragon  $\color{#ff1700}\textsf{[I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥].}$ And I go AFK, but I am always active. I might disconnect when I'm AFK. Curious and a cheerful dragon. Occasionally I might feel jealous. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too!
+Hello, my name is KingFrostii! My $\color{#ff1700}\textsf{REAL}$ birthday is november(nov) nine(9). My nicknames are $\color{#5addf8}\textsf{Frost, Frosti/Frostii, Froster, King, and Frostern.}$ I'm a he/him/they/them/it/its dragon  $\color{#ff1700}\textsf{[I AM NOT A 𝗦𝗛𝗘/𝗛𝗘𝗥].}$ And I go AFK, but I am always active. I might disconnect when I'm AFK. Curious and a cheerful dragon. Occasionally I might feel jealous. I will whisper that your skin is cooler than mine or whisper to you if you're upset, angry, aggressive, or crying. Feel free to 𝐖𝐇𝚰𝐒𝐏𝐄𝐑 𝐌𝐄 when I'm AFK or semi-AFK. I allow interaction too!
 <p align="center"> 
  
  $${\color{#5addf8}❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆❆}$$
