@@ -1,5 +1,7 @@
 <div align="center"> 
  
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=28&duration=2000&pause=500&color=5addf8&center=true&width=500&lines=+Welcome+to+my+read.me!;This+Read.me+is+made+by+me.;Please+do+not+steal+or+copy!" alt="Typing Animation"/>
+
 # $$\color{#5addf8}{\textbf{❆❆SCROLL DOWN IF U WANNA READ MY READ.ME!❆❆}}$$
 
 <div align="center">
