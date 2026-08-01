@@ -248,7 +248,7 @@ $$\color{#e8e9fc}{\textbf{𝗪𝗵𝗲𝗿𝗲 𝗮𝗺 𝗶? 𝗜 𝗮𝗺 𝗵
 
 $\color{#5addf8}\textsf{I love exploring some areas on Pony Town.}$ 
 
-$\color{#5addf8}\textsf{You might find me sitting in the}$
+$\color{#5addf8}\textsf{You might find me sitting in the..}$
 
 $\color{#5addf8}\textsf{DW area}$
 
