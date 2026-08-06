@@ -59,7 +59,7 @@ $$\color{#ff1700}{\textbf{ι ¢αη ѕєє уσυ..}}$$
 <p align="center"> 
 $\color{#ff1700}\textsf{I DO NOT LIKE TALKING TO RANDOM PERSONS THAT ARE USING TUTORIAL SKINS.}$
  
-$\color{#ff1700}\textsf{I WILL NOT LET YOU SHIP MY 𝐎𝐂 WITH YOUR FANONS OR CANONS IN YOUR 𝗢𝗪𝗡 STYLE.}$
+$\color{#ff1700}\textsf{I WILL NOT LET YOU SHIP MY 𝐎𝐂 WITH YOUR FANONS OR CANONS IN YOUR 𝗢𝗪𝗡 STYLE.-if friend's perms$
 
 $\color{#ff1700}\textsf{AVOID FALLING IN LOVE WITH ME BECAUSE IF YOU DO, I MAY BLOCK YOU. -I really don't care if my friends start falling in love with me.}$
 
