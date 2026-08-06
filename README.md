@@ -3,12 +3,12 @@
 <img width="400" height="54" alt="tumblr_c8aa113b5a5fc2c1af17180bee21664b_3863adb7_400" src="https://github.com/user-attachments/assets/3ae44764-4cc1-4971-a069-055731fc33fa" />
 
 
-# $$\color{#FFFF00}\text{Welcome to my Read.me!!}$$
+# $$\color{#FFF59D}\text{Welcome to my Read.me!!}$$
 
-$$\color{#FFFF00}\text{About me}$$
+$$\color{#FFFDE7}\text{About me!}$$
 
-Hello!! I'm $$\color{#FFFF00}\text{SpringBonnie.}$$ I'm a he/him. I also like Bunnies! They're cuter than I thought! Anyway... These are my silly bunieds! (Short for Bunny-Friends!). I'm semi-afk and afk! Feel free to whisper me! Please don't spam whisper or repeat whisper…  I don't mind if you want to be my friend, but... I don't like befriending tutorial skin, toxic, or mean people.
-
+Hello!! I'm $$\color{#FFF59D}\text{SpringBonnie.}$$ I'm a he/him. I also like Bunnies! They're cuter than I thought! I'm semi-afk and afk! Feel free to whisper me! Please don't spam whisper or repeat whisper…  I don't mind if you want to be my friend, but... I don't like befriending tutorial skin, toxic, or mean people. Most cheerful bunny that supports you! Please don't copy or steal my idea… If you do, I might block you! Anyway... These are my silly $$\color{#FFF59D}\text{bunieds!}$$ (Short for Bunny-Friends!)
+ 
 [Xaplastcore](https://github.com/Xaplastcore) 
 [Zouweemama](https://github.com/zouweemama)
 [Julian](https://github.com/ianishuser) 
