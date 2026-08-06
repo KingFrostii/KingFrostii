@@ -28,10 +28,18 @@ Hello!! I'm $$\color{#FFF59D}\text{SpringBonnie.}$$ I'm a he/him. I also like Bu
 
 <img width="400" height="54" alt="tumblr_142a3c1bbd13c99c2d6508c104453acf_f8029f4c_400" src="https://github.com/user-attachments/assets/c4627c35-489e-4097-8009-7316b11608bd" />
 
+<div align="center">
+
+
+
 
 I usually like to sleep, draw, play games, watch movies or series, and listen to music!
 
 I love to interact with someone else.
+
+
+<div align="center">
+
 
 <img width="400" height="54" alt="tumblr_69ef2b0bada9cf07bdfe2e0e7b4f1309_5eb9d37b_400" src="https://github.com/user-attachments/assets/1fc3be8a-25ca-4346-a795-7b62fe414ae7" />
 
