@@ -5,71 +5,39 @@
 
 # $$\color{#FFFF00}\text{Welcome to my Read.me!!}$$
 
-Hello!! I'm SpringBonnie. I'm a he/him. I also like Bunnies! They're cuter than I thought! Anyway... These are my silly bunieds! (Short for Bunny-Friends!)
+$$\color{#FFFF00}\text{About me}$$
+
+Hello!! I'm $$\color{#FFFF00}\text{SpringBonnie.}$$ I'm a he/him. I also like Bunnies! They're cuter than I thought! Anyway... These are my silly bunieds! (Short for Bunny-Friends!). I'm semi-afk and afk! Feel free to whisper me! Please don't spam whisper or repeat whisper…  I don't mind if you want to be my friend, but... I don't like befriending tutorial skin, toxic, or mean people.
 
 [Xaplastcore](https://github.com/Xaplastcore) 
-
-
 [Zouweemama](https://github.com/zouweemama)
-
-
 [Julian](https://github.com/ianishuser) 
-
-
 [Witherd](https://github.com/Chemicalshot) 
-
-
-
 [Caporegime](https://github.com/lovingl3tters)
-
-
-
-
 [Pinkamena](https://github.com/retribite)
-
-
-
-
-
 [byte](https://github.com/their-machine)
-
-
-
 [Corin](https://github.com/Corintheuss)
-
-
-
 [Zip](https://github.com/Mimikinsz)
-
-
-
-
-
 [SYS/COR](https://github.com/SYS-SOF)
-
-
-
-
-
 [Matteo](https://github.com/Loonarx)
-
-
-
-
-
 [Gabriel](https://github.com/gabriellovessprite)
-
-
-
-
 [Cherri](https://github.com/cherriiaxo)
-
-
-
-
 [Sophont/Cook](https://github.com/Anchorrz)
-
-
-
-
 [Akaza](https://github.com/catmorguee)
+
+
+<img width="400" height="54" alt="tumblr_142a3c1bbd13c99c2d6508c104453acf_f8029f4c_400" src="https://github.com/user-attachments/assets/c4627c35-489e-4097-8009-7316b11608bd" />
+
+
+I usually like to sleep, draw, play games, watch movies or series, and listen to music!
+
+I love to interact with someone else.
+
+<img width="400" height="54" alt="tumblr_69ef2b0bada9cf07bdfe2e0e7b4f1309_5eb9d37b_400" src="https://github.com/user-attachments/assets/1fc3be8a-25ca-4346-a795-7b62fe414ae7" />
+
+DNI PROSHIPPER, DARKSHIPPER, AND SELFSHIPPERS.
+
+PLEASE DO NOT WHISPER TO ME WHEN I'M UNCONFORTABLE.
+
+
+
