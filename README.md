@@ -49,3 +49,10 @@ PLEASE DO NOT WHISPER TO ME WHEN I'M UNCONFORTABLE.
 
 Not VERY uncomfortable for proshippers and darkshippers.
 
+
+ $$\color{#FFF59D}\text{Which side}$$ $$\color{#5d5932}\text{you prefer to?}$$
+ 
+<img width="675" height="1200" alt="832238a7736fa9aebe2dabbc43eb6409" src="https://github.com/user-attachments/assets/415a9000-57c8-44b2-a698-9e4986c47503" />
+
+
+
