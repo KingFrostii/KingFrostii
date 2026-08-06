@@ -39,5 +39,5 @@ DNI PROSHIPPER, DARKSHIPPER, AND SELFSHIPPERS.
 
 PLEASE DO NOT WHISPER TO ME WHEN I'M UNCONFORTABLE.
 
-
+Not VERY uncomfortable for proshippers and darkshippers.
 
