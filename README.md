@@ -35,8 +35,11 @@ Hello!! I'm $$\color{#FFF59D}\text{SpringBonnie.}$$ I'm a He/him. I also like Bu
 
 I usually like to sleep, draw, play games, watch movies or series, and listen to music!
 
-I love to interact with someone else.
+I love to interact with someone else!
 
+I am tired of dealing with important matters in irl.
+
+Usually semi-afk and afk.
 
 <div align="center">
 
@@ -48,6 +51,7 @@ DNI PROSHIPPER, DARKSHIPPER, AND SELFSHIPPERS.
 PLEASE DO NOT WHISPER TO ME WHEN I'M UNCONFORTABLE.
 
 Not VERY uncomfortable for proshippers and darkshippers.
+
 
 
  $$\color{#FFF59D}\text{Which side}$$ $$\color{#5d5932}\text{you prefer to?}$$
