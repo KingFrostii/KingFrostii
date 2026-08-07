@@ -48,6 +48,10 @@ I am tired of dealing with important matters in irl.
 
 Usually semi-afk and afk.
 
+Loves to make new friends!
+
+Very interested in art styles!
+
 <div align="center">
 
 
@@ -63,9 +67,9 @@ Please, do not copy or roast my skin!
 
 I don't like talking to weird person..
 
+Usually not very interested in enemies.
 
-
-
+Please don't fall in love with me, strangers! -ONLY my friends can fall in love with me if they're not that freaky. -If permitted.
 
 <img width="99" height="57" alt="tumblr_832eed2bcf2107d01b7f198474fdaa4e_1d361057_100" src="https://github.com/user-attachments/assets/1d8e53f1-5fef-43bf-a094-46b9ea668a71" />
 <img width="99" height="57" alt="tumblr_33a4050b6175526191f3a9fdbd461f9c_bccdda89_100" src="https://github.com/user-attachments/assets/cf944f40-e384-4096-bb5d-82e675d762e7" />
