@@ -7,7 +7,7 @@
 
 $$\color{#FFFDE7}\text{About me!}$$
 
-Hello!! I'm $$\color{#FFF59D}\text{SpringBonnie.}$$ I'm a He/him. I also like Bunnies! (Yes, I am a bunny lover!) They're cuter than I thought! I'm semi-afk and afk! Feel free to cuddle or whisper me! Please don't spam whisper or repeat whisper…  I don't mind if you want to be my friend, but... I don't like befriending tutorial skin, toxic, or mean people. Most cheerful bunny that supports you! Please don't copy or steal my idea… If you do, I might block you!.I'm obsessed with $$\color{#FFF59D}\text{♡︎Springbonnie♡︎!}$$  Anyway... These are my $$\color{#FFF59D}\text{silly bunieds!}$$ (Short for Bunny-Friends!)
+Hello!! I'm $$\color{#FFF59D}\text{SpringBonnie.}$$ I'm a He/him. My nicknames are Springy, and Bons! I also like Bunnies! (Yes, I am a bunny lover!) They're cuter than I thought! I'm semi-afk and afk! Feel free to cuddle or whisper me! Please don't spam whisper or repeat whisper…  I don't mind if you want to be my friend, but... I don't like befriending tutorial skin, toxic, or mean people. Most cheerful bunny that supports you! Please don't copy or steal my idea… If you do, I might block you!.I'm obsessed with $$\color{#FFF59D}\text{♡︎Springbonnie♡︎!}$$  Anyway... These are my $$\color{#FFF59D}\text{silly bunieds!}$$ (Short for Bunny-Friends!)
  
 [Xaplastcore](https://github.com/Xaplastcore) 
 [Zouweemama](https://github.com/zouweemama)
