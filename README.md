@@ -49,9 +49,14 @@ I am tired of dealing with important matters in irl.
 
 Usually semi-afk and afk.
 
-Loves to make new friends!
+Loves to make new friends! (I might have pinned you in my friend list and put your user in my read.me!^^)
 
 Very interested in art styles!
+
+Free cuddle piles! 
+
+Free cuddle piles! (It's my fav hobby!)
+
 
 <div align="center">
 
