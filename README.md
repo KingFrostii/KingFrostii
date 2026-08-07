@@ -72,6 +72,8 @@ Usually not very interested in enemies.
 
 Please don't fall in love with me, strangers! -ONLY my friends can fall in love with me if they're not that freaky. -If permitted.
 
+Don't take my heavy inspo!-If permiss.
+
 <img width="99" height="57" alt="tumblr_832eed2bcf2107d01b7f198474fdaa4e_1d361057_100" src="https://github.com/user-attachments/assets/1d8e53f1-5fef-43bf-a094-46b9ea668a71" />
 <img width="99" height="57" alt="tumblr_33a4050b6175526191f3a9fdbd461f9c_bccdda89_100" src="https://github.com/user-attachments/assets/cf944f40-e384-4096-bb5d-82e675d762e7" />
 <img width="99" height="57" alt="tumblr_390dd4b2f64f3fd1ac3b7ad7df98e1d9_90f40def_100" src="https://github.com/user-attachments/assets/07d479ff-0572-4ff3-9ba2-c7bf7cdf7ee8" />
