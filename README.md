@@ -61,20 +61,17 @@ Not VERY uncomfortable for proshippers and darkshippers.
 
 Please, do not copy or roast my skin!
 
- $$\color{#FFF59D}\text{Which side}$$ $$\color{#5d5932}\text{you prefer to?}$$
- 
-<img width="675" height="1200" alt="832238a7736fa9aebe2dabbc43eb6409" src="https://github.com/user-attachments/assets/415a9000-57c8-44b2-a698-9e4986c47503" />
+I don't like talking to weird person..
 
 
-<img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" /><img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" />
 
 
 
 <img width="99" height="57" alt="tumblr_832eed2bcf2107d01b7f198474fdaa4e_1d361057_100" src="https://github.com/user-attachments/assets/1d8e53f1-5fef-43bf-a094-46b9ea668a71" />
-
 <img width="99" height="57" alt="tumblr_33a4050b6175526191f3a9fdbd461f9c_bccdda89_100" src="https://github.com/user-attachments/assets/cf944f40-e384-4096-bb5d-82e675d762e7" />
 <img width="99" height="57" alt="tumblr_390dd4b2f64f3fd1ac3b7ad7df98e1d9_90f40def_100" src="https://github.com/user-attachments/assets/07d479ff-0572-4ff3-9ba2-c7bf7cdf7ee8" />
 <img width="99" height="57" alt="tumblr_24bebea74730dfddbceba96552ffa24a_06df06e3_100" src="https://github.com/user-attachments/assets/a0e6bd24-25bd-49c6-8d65-e1aedd188aa1" />
 <img width="99" height="57" alt="tumblr_90108bc43b516c4d88316327a2e6a705_8b52613e_100" src="https://github.com/user-attachments/assets/214a2bf5-b07d-4219-9945-582aabc52a51" />
 <img width="99" height="57" alt="tumblr_0d513105ba220ea10c813038004dc035_62791f76_100" src="https://github.com/user-attachments/assets/646b4d57-d307-47c7-9a14-617ded571236" />
 
+<img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" /><img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" />
