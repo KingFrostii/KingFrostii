@@ -52,7 +52,7 @@ PLEASE DO NOT WHISPER TO ME WHEN I'M UNCONFORTABLE.
 
 Not VERY uncomfortable for proshippers and darkshippers.
 
-
+Please, do not copy or roast my skin!
 
  $$\color{#FFF59D}\text{Which side}$$ $$\color{#5d5932}\text{you prefer to?}$$
  
