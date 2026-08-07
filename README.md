@@ -78,5 +78,3 @@ Please, do not copy or roast my skin!
 <img width="99" height="57" alt="tumblr_90108bc43b516c4d88316327a2e6a705_8b52613e_100" src="https://github.com/user-attachments/assets/214a2bf5-b07d-4219-9945-582aabc52a51" />
 <img width="99" height="57" alt="tumblr_0d513105ba220ea10c813038004dc035_62791f76_100" src="https://github.com/user-attachments/assets/646b4d57-d307-47c7-9a14-617ded571236" />
 
-<img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" /><img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" />
-
