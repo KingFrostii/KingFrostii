@@ -59,6 +59,8 @@ Free cuddle piles! (It's my fav hobby!)
 
 I love gift skins from my friends!
 
+You can sketch me if permitted! (add me on discord!) (Discord acc: spr1ngb0nnie)
+
 <div align="center">
 
 
