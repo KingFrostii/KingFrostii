@@ -57,6 +57,7 @@ Free cuddle piles!
 
 Free cuddle piles! (It's my fav hobby!)
 
+I love gift skins from my friends!
 
 <div align="center">
 
