@@ -1,3 +1,4 @@
+
 <div align="center">
 
 <img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" /><img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" />
@@ -12,10 +13,15 @@
 
 # $$\color{#FFF59D}\text{Welcome to my Read.me!!}$$
 
+<img width="250" height="42" alt="tumblr_277e96d33eac9ce1de2dd5c3ca004ac0_16a1792d_250" src="https://github.com/user-attachments/assets/1069cf31-ac7d-4c74-9fed-4853c78e2a6d" />
+
+
 $$\color{#FFFDE7}\text{About me!}$$
 
 Hello!! I'm $$\color{#FFF59D}\text{SpringBonnie.}$$ I'm a He/him. My nicknames are $$\color{#FFF59D}\text{Springy}$$ and $$\color{#FFF59D}\text{Bons!}$$ I also like Bunnies! (Yes, I am a bunny lover!) They're cuter than I thought! I'm semi-afk and afk! Feel free to cuddle or whisper me! Please don't spam whisper or repeat whisper…  I don't mind if you want to be my friend, but... I don't like befriending tutorial skin, toxic, or mean people. Most cheerful bunny that supports you! (Not welled be supported…) Please don't copy or steal my idea… If you do, I might block you!. I'm obsessed with $$\color{#FFF59D}\text{♡︎Springbonnie♡︎!}$$  Anyway... These are my $$\color{#FFF59D}\text{silly bunieds!}$$ (Short for Bunny-Friends!) (Yes, I made it by myself. Just don't take my idea.)
- 
+
+ <img width="250" height="34" alt="tumblr_a7b9bc0e0b5f86da1d93f8e455ddb87f_0c55d5b1_250" src="https://github.com/user-attachments/assets/5b8feedc-49d6-4889-a9d3-f8e8b6459357" />
+
 [Xaplastcore](https://github.com/Xaplastcore) 
 [Zouweemama](https://github.com/zouweemama)
 [Julian](https://github.com/ianishuser) 
@@ -63,7 +69,6 @@ You can sketch me if permitted! (add me on discord!) (Discord acc: spr1ngb0nnie)
 
 <div align="center">
 
-
 <img width="400" height="54" alt="tumblr_69ef2b0bada9cf07bdfe2e0e7b4f1309_5eb9d37b_400" src="https://github.com/user-attachments/assets/1fc3be8a-25ca-4346-a795-7b62fe414ae7" />
 
 DNI PROSHIPPER, DARKSHIPPER, AND SELFSHIPPERS.
@@ -88,5 +93,7 @@ Don't take my heavy inspo!-If permiss.
 <img width="99" height="57" alt="tumblr_24bebea74730dfddbceba96552ffa24a_06df06e3_100" src="https://github.com/user-attachments/assets/a0e6bd24-25bd-49c6-8d65-e1aedd188aa1" />
 <img width="99" height="57" alt="tumblr_90108bc43b516c4d88316327a2e6a705_8b52613e_100" src="https://github.com/user-attachments/assets/214a2bf5-b07d-4219-9945-582aabc52a51" />
 <img width="99" height="57" alt="tumblr_0d513105ba220ea10c813038004dc035_62791f76_100" src="https://github.com/user-attachments/assets/646b4d57-d307-47c7-9a14-617ded571236" />
+
+<img width="400" height="33" alt="tumblr_7c627f63c284b145f98fa3bb27844e92_ab0a6073_400" src="https://github.com/user-attachments/assets/44bc2b7c-f0dd-4519-910e-b8c272b468e2" />
 
 <img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" /><img width="400" height="40" alt="tumblr_b33e31beb231deb0c13b99659da5ed3b_ab50b876_400" src="https://github.com/user-attachments/assets/0063540a-b609-49f4-8d4a-e1f641f212e5" />
