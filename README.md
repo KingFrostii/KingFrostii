@@ -83,7 +83,7 @@ I don't like talking to weird person..
 
 Usually not very interested in enemies.
 
-Please don't fall in love with me, strangers! -ONLY my friends can fall in love with me if they're not that freaky. -If permitted.
+Please don't fall in love with me, strangers!
 
 Don't take my heavy inspo!-If permiss.
 
