@@ -93,6 +93,22 @@ Don't take my heavy inspo!-If permiss.
 <img width="99" height="57" alt="tumblr_24bebea74730dfddbceba96552ffa24a_06df06e3_100" src="https://github.com/user-attachments/assets/a0e6bd24-25bd-49c6-8d65-e1aedd188aa1" />
 <img width="99" height="57" alt="tumblr_90108bc43b516c4d88316327a2e6a705_8b52613e_100" src="https://github.com/user-attachments/assets/214a2bf5-b07d-4219-9945-582aabc52a51" />
 <img width="99" height="57" alt="tumblr_0d513105ba220ea10c813038004dc035_62791f76_100" src="https://github.com/user-attachments/assets/646b4d57-d307-47c7-9a14-617ded571236" />
+<img width="99" height="56" alt="tumblr_0b37f45f53b8d5670859db0caade0986_dcd4ecfa_100" src="https://github.com/user-attachments/assets/684904b0-8c9d-4540-b794-82fe1def9821" />
+<img width="97" height="53" alt="tumblr_98a3ee394c5d1d03561c752f070b73f3_64ac5923_100" src="https://github.com/user-attachments/assets/297c4cd5-2081-405e-a3ad-9694efa99c1c" />
+<img width="99" height="56" alt="tumblr_652723e7389665cb8be7ab39e375983f_339f76fa_100" src="https://github.com/user-attachments/assets/3045ef53-f2b6-4926-b030-d76f87db749d" />
+<img width="99" height="56" alt="tumblr_772269c17f7d5633ec3f8599d4ea84b6_f5883f08_100" src="https://github.com/user-attachments/assets/3587036a-18d1-454a-bf5d-cd1147a0a5b7" />
+<img width="99" height="56" alt="tumblr_f6f936cd16d9b73c94c3aa2ec8bc62a0_9e59fc84_100" src="https://github.com/user-attachments/assets/073fbe87-cb96-4eb9-8a8e-6cb2fc0f4bd6" />
+<img width="99" height="56" alt="tumblr_edbd81eab10b8fb47be8945dbf50b4e3_ea231019_100" src="https://github.com/user-attachments/assets/830d312b-8877-4b8a-bada-eba032cb8a5b" />
+<img width="99" height="56" alt="tumblr_12d9f204ac89e5289f00e95402dad44b_da380d4f_100" src="https://github.com/user-attachments/assets/926ecdd1-f564-4e0f-b86f-aaf63a20a04d" />
+<img width="99" height="55" alt="tumblr_93380c4aedc0d6d3df36cd47d30e8f3e_b1655333_100" src="https://github.com/user-attachments/assets/7474ab3f-2bff-4547-83ce-7c05d656b1d0" />
+
+
+
+
+
+<div align="center">
+
+
 
 <img width="400" height="33" alt="tumblr_7c627f63c284b145f98fa3bb27844e92_ab0a6073_400" src="https://github.com/user-attachments/assets/44bc2b7c-f0dd-4519-910e-b8c272b468e2" />
 
