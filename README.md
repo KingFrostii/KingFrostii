@@ -28,7 +28,6 @@ Hello!! I'm $$\color{#FFF59D}\text{SpringBonnie.}$$ I'm a He/him. My nicknames a
 [Witherd](https://github.com/Chemicalshot) 
 [Caporegime](https://github.com/lovingl3tters)
 [Pinkamena](https://github.com/retribite)
-[Byte](https://github.com/their-machine)
 [Corin](https://github.com/Corintheuss)
 [Zip](https://github.com/Mimikinsz)
 [SYS/COR](https://github.com/SYS-SOF)
