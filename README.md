@@ -16,7 +16,7 @@
 <img width="250" height="42" alt="tumblr_277e96d33eac9ce1de2dd5c3ca004ac0_16a1792d_250" src="https://github.com/user-attachments/assets/1069cf31-ac7d-4c74-9fed-4853c78e2a6d" />
 
 
-$$\color{#FFFDE7}\text{About me!}$$
+$$\color{#FFF59D}\text{About me!}$$
 
 Hello!! I'm $$\color{#FFF59D}\text{SpringBonnie.}$$ I'm a He/him. My nicknames are $$\color{#FFF59D}\text{Springy}$$ and $$\color{#FFF59D}\text{Bons!}$$ I also like Bunnies! (Yes, I am a bunny lover!) They're cuter than I thought! I'm semi-afk and afk! Feel free to cuddle or whisper me! Please don't spam whisper or repeat whisper…  I don't mind if you want to be my friend, but... I don't like befriending tutorial skin, toxic, or mean people. Most cheerful bunny that supports you! (Not welled be supported…) Please don't copy or steal my idea… If you do, I might block you!. I'm obsessed with $$\color{#FFF59D}\text{♡︎Springbonnie♡︎!}$$  Anyway... These are my $$\color{#FFF59D}\text{silly bunieds!}$$ (Short for Bunny-Friends!) (Yes, I made it by myself. Just don't take my idea.)
 
