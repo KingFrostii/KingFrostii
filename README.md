@@ -38,6 +38,7 @@ Hello!! I'm $$\color{#FFF59D}\text{SpringBonnie.}$$ I'm a He/Him. My nicknames a
 [Akaza](https://github.com/catmorguee)
 [punchirock](https://github.com/punchirock123)
 [shappii](https://github.com/shappushan)
+[Zehkarii/Yнυŋєтн](https://github.com/Zehkarii)
 
 <img width="400" height="54" alt="tumblr_142a3c1bbd13c99c2d6508c104453acf_f8029f4c_400" src="https://github.com/user-attachments/assets/c4627c35-489e-4097-8009-7316b11608bd" />
 
