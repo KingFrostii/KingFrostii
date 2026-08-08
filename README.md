@@ -66,6 +66,8 @@ I love gift skins from my friends!
 
 You can sketch me if permitted! (add me on discord!) (Discord acc: spr1ngb0nnie)
 
+You can find me sitting in the DW area, FSKN area, TADC area, TRANSFORMER area, PPT area, and ANA area!
+
 <div align="center">
 
 <img width="400" height="54" alt="tumblr_69ef2b0bada9cf07bdfe2e0e7b4f1309_5eb9d37b_400" src="https://github.com/user-attachments/assets/1fc3be8a-25ca-4346-a795-7b62fe414ae7" />
